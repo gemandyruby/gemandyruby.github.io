@@ -7,23 +7,41 @@ Ruby adjusted her sketchpad nervously, sitting in the back corner of the art cla
 
 “Okay, everyone,” the instructor announced. “Let’s get started. Our model will be here shortly.”  
 
-The door opened, and Ruby’s stomach dropped.  
+Ruby’s heart sank. Of course. Of *course*. Her sister was the model.  
 
-Gem Stone, Ruby's younger sister, sauntered in, six feet of radiant confidence wrapped in a loosely tied robe. Heads turned instantly, conversations faltered, and someone audibly gasped. With her perfectly symmetrical face—sharp cheekbones, full lips, and mischievous blue eyes—Gem looked like she’d stepped out of a Renaissance painting. Her golden hair cascaded down her back in soft waves, glowing under the studio lights.  
+Gem strode into the room like she owned it, which, in a way, she always did. She wore a robe tied loosely at the waist, her impossibly tall, muscular frame commanding every pair of eyes in the room. She greeted the instructor with her trademark dazzling smile, her golden hair catching the light like a halo.  
 
-Ruby slumped in her seat. “Oh, come on,” she muttered under her breath.  
+Gem shot Ruby a wink as she climbed onto the platform in the center of the room. Ruby groaned inwardly. She’d spent years trying to avoid the gravitational pull of her sister’s perfection, and now she was supposed to *study* it?  
 
-Spotting her sister, Gem grinned and strode over. “Rubes! Didn’t know you’d be here. Lucky you, huh?”  
+“All right, everyone,” the instructor said, clapping their hands. “Let’s get started. Gem, whenever you’re ready.”  
 
-Ruby glared. “Lucky isn’t the word I’d use.”  
+With an almost theatrical flair, Gem untied the robe and let it slide from her shoulders.  
 
-Gem ignored her and turned to the instructor. “So, where do you want me? I’m ready to give these people the show of their lives.”  
+The room seemed to collectively hold its breath.  
 
-Gem untied her robe with a dramatic flourish, letting it fall to the floor. The room went utterly silent.  
+Gem stood before the class completely naked, and her body was a masterpiece. Her six-foot frame was both powerful and graceful, with long, toned legs that seemed to go on forever. Her shoulders were broad yet elegant, her arms defined with sleek muscle. Her torso was the real showstopper—her abs rippled with definition, each line carved with precision, her waist tapering into perfect symmetry. Her skin was smooth and radiant, glowing with health. And her breasts, full and perfectly proportioned, firm and proud on her chest, added an effortless femininity to her otherwise athletic build.  
 
-She stood before the class completely naked. Her body was mesmerizing—a six-foot statue of flawless symmetry and sculpted perfection. Her abs, deeply carved and impossibly symmetrical, tapered down to a narrow waist. Her toned arms and long, muscular legs gave her an athletic yet feminine look, and her full breasts, firm and proud on her chest, perfectly complemented her statuesque frame. Even standing still, she radiated effortless grace.  
+Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
 
-The first few poses were relatively simple, giving the class time to adjust to their model’s overwhelming presence. Ruby struggled, her pencil faltering as she tried to capture Gem’s symmetrical features. The arch of her brow, the curve of her lips—everything about her sister was maddeningly perfect.
+Gem, of course, was having the time of her life. She struck a simple standing pose at first, hands on her hips, her expression playful. “Hope you’re all ready,” she said with a grin, her voice dripping with confidence. “This isn’t your average figure study.”  
+
+The students chuckled nervously, and Gem basked in their attention.  
+
+Ruby tried to focus, her pencil trembling as she sketched the long line of Gem’s legs. She glanced up at the platform, only to find Gem making direct eye contact with her.  
+
+“Having fun over there, Rubes?” Gem teased, her voice light but carrying just enough edge to make Ruby bristle.  
+
+“Just… drawing,” Ruby muttered, keeping her gaze firmly on her paper.  
+
+Gem laughed softly, shifting into her next pose—a seated one, her legs crossed gracefully, one arm resting lightly on her knee. The pose was deceptively simple, but it highlighted the strength in her thighs and the definition in her abs. Ruby’s pencil slipped, creating a jagged line she had to erase quickly.  
+
+For Ruby, every pose felt like a test, a reminder of all the ways she could never measure up. Gem was radiant, confident, and utterly untouchable. Ruby’s hands shook as she tried to capture the softness of Gem’s smile, the sharpness of her cheekbones, and the impossible symmetry of her face.  
+
+The worst part was how clearly Gem was enjoying herself. She shifted into another pose, lying on her side with one arm propping up her head.  
+
+“Don’t be shy,” Gem said, flashing the room another dazzling smile. “You can look as much as you need to. I don’t bite. Well, not during class.”  
+
+A few students laughed nervously, and Ruby grit her teeth.  
 
 When the timer buzzed, signaling the start of the break, Gem stretched dramatically on the platform, her robe draped casually over the chair behind her. She hopped down with an effortless grace, completely unbothered by her lack of coverage, and began sauntering naked around the room.
 
