@@ -1,5 +1,6 @@
 ---
 title: Art School Antics
+layout: story
 ---
 
 Ruby adjusted her sketchpad nervously, sitting in the back corner of the art classroom. Life drawing wasn’t her favorite, but she needed the practice. As students settled in, she glanced toward the front, curious about the model for today’s session.  
