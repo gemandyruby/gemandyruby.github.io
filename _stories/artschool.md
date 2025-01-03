@@ -55,7 +55,7 @@ Moving on, Gem paused at another student’s station. “Ooh, love the shading. 
 
 Finally, she made her way to Ruby, who had been sitting quietly, trying to focus on her drawing. Ruby glanced up and immediately frowned. “Gem, you’re supposed to wear the robe during breaks. It’s the rules.”
 
-Gem grinned, taking another bite of her candy bar. “Rules? Babe, have you met me? Besides, I don't think anyone minds.” She leaned over Ruby’s shoulder, her hair brushing lightly against her sister’s arm. “Anyway, let’s see how you’re doing.”
+Gem grinned, taking another bite of her candy bar. “Oh, come on, Rubes. Don’t be such a prude. I don't think anyone minds.” She leaned over Ruby’s shoulder, her hair brushing lightly against her sister’s arm. “Anyway, let’s see how you’re doing.”
 
 Ruby sighed, her exasperation barely concealed. “It’s fine. Just go sit down or something.”
 
