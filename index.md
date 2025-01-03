@@ -2,6 +2,8 @@
 layout: default
 ---
 
+
+<h2> Stories: </h2>
 <ul>
 {% for story in site.stories %}
   <li>
