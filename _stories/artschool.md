@@ -7,6 +7,8 @@ Ruby adjusted her sketchpad nervously, sitting in the back corner of the art cla
 
 “Okay, everyone,” the instructor announced. “Let’s get started. Our model will be here shortly.”  
 
+The door opened, and in walked Gem.
+
 Ruby’s heart sank. Of course. Of *course*. Her sister was the model.  
 
 Gem strode into the room like she owned it, which, in a way, she always did. She wore a robe tied loosely at the waist, her impossibly tall, muscular frame commanding every pair of eyes in the room. She greeted the instructor with her trademark dazzling smile, her golden hair catching the light like a halo.  
