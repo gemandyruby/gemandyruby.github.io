@@ -149,12 +149,20 @@ Ruby rolled her eyes, though her cheeks were faintly pink. “You’re ridiculou
 
 Gem handed the sketch to the instructor, who stood speechless, holding the paper as though it were a priceless artifact. “You can keep it,” she said casually. “Call it a gift. Don’t all thank me at once.”  
 
-The class broke into scattered applause, and Gem gave an exaggerated bow, the loose robe sliding off one shoulder as she laughed. “Alright, I think my work here is done.”  
+She turned and strolled back to the platform, every step a study in grace. The students nearby couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. Even as she reached for her clothes, her beauty seemed almost otherworldly—her skin glowing, her muscles subtly flexing as she moved, her perfect smile lighting up her face.  
 
-Ruby shook her head, muttering under her breath. “Unbelievable.”  
+Ruby, seated at her easel, couldn’t help but feel a familiar mix of admiration and irritation. Gem’s natural brilliance and poise were like a spotlight that never dimmed, and Ruby had spent her life trying to avoid its glare.  
 
-Gem grinned and slung an arm around Ruby’s shoulders, steering her toward the exit. “Oh, c’mon. Admit it—you’re a little impressed.”  
+As Gem shrugged into her crop top, pulling it down to frame her toned abs and slipping on her fitted jeans, she glanced over at Ruby with a mischievous grin. "Well, that was fun," she said, tying her hair into a loose ponytail. "I mean, how often do people get the chance to draw *this*?" She gestured to herself with a playful flourish, her eyes sparkling.  
 
-“You’re impossible,” Ruby said flatly.  
+Ruby rolled her eyes. "You’re impossible."  
 
-Gem shrugged. “I mean, come on. You got to draw a literal goddess today. That’s a win.”  
+"Come on, Rubes," Gem said, grabbing her bag and slinging it over her shoulder. "Admit it. You were lucky to have me as your model. Everyone was. Honestly, if I wasn’t such an amazing physicist, I could totally go into modeling. Can you imagine me on a runway?"  
+
+Ruby snorted. "Yeah, you’d love that."  
+
+Gem laughed, her voice ringing like a bell as she slipped her sneakers on. "I would. But it’d be almost *too* easy. Like everything else."  
+
+As they walked out together, Gem turned to Ruby, her grin softening into something almost fond. "But seriously, it was fun. Maybe I’ll come back. Keep giving these poor art students the best lesson they’ll ever have."  
+
+Ruby muttered something under her breath, but her lips quirked into a reluctant smile. Gem, as always, had stolen the show. And, as always, she’d enjoyed every second of it. 
