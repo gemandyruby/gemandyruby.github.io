@@ -71,13 +71,13 @@ Gem ignored her. “Oh my god, Rubes. What even is this? Like, these abs? They l
 
 Ruby groaned, her pencil pausing mid-stroke. “Gem, do you have to be so... detailed?”
 
-Gem smirked. “It’s not my fault you’re struggling to capture perfection.” Then, without warning, she grabbed Ruby’s hand and pressed it against her stomach. “Here, feel for yourself. See how solid they are?”
+Gem smirked. “It’s not my fault you’re struggling to capture perfection.” Then, without warning, she grabbed Ruby’s hand and pressed it against her bare stomach. “Here, feel for yourself. See how solid they are?”
 
-Ruby gasped softly, startled by the sheer firmness beneath her fingers. She’d expected them to be defined, of course—Gem’s abs were legendary—but touching them was a whole different experience. They felt like carved marble, unyielding and impossibly precise. Ruby yanked her hand back, her cheeks flushing.
+Ruby gasped softly, startled by the sheer firmness beneath her fingers. She’d expected them to be defined, of course—Gem’s abs were legendary—but touching them was a whole different experience. They felt like carved marble, unyielding and impossibly precise. Ruby's fingers lingered, almost involuntarily tracing the sharp ridges and smooth skin. Her breath hitched as the heat of Gem’s body seemed to seep into her palm. She then yanked her hand back, her cheeks flushing.
 
 “See what I mean?” Gem said, leaning back with a teasing grin. “You’ll never get it right if you don’t pay attention to the details, Rubes.”
 
-Ruby groaned. “Gem…”
+Ruby groaned, her voice unsteady. “Gem…”
 
 “Anyway,” she said, twirling her hair. “My shoulders are, like, way broader than that. And my boobs? Babe, please. They’re perkier than this sad sketch you’ve got going on.” She cupped her large breasts to demonstrate.
 
@@ -125,52 +125,74 @@ Gem just grinned. “Pure luck, babe. Pure luck.”
 
 As the session wrapped up, the instructor clapped their hands, signaling the end of the class. “Great work, everyone! You’re free to go.”  
 
-Gem stretched on the platform, her movements fluid and deliberate, like a cat. She hopped down gracefully and began wrapping herself in the robe—though she didn’t bother tying it, leaving it hanging loosely around her figure. As she strolled past Ruby’s easel, she paused and gave her sister a teasing grin.  
+Gem stretched on the platform, her movements fluid and deliberate, like a cat. She hopped down gracefully and began wrapping herself in the robe—though she didn’t bother tying it, leaving it hanging loosely around her figure. As she strolled past Ruby’s easel, she paused and gave her sister a teasing grin.
 
-“Not bad, Rubes,” Gem said, tilting her head to study the drawing. “But, you know, you could’ve made me look a little more godlike.”  
+“Okay, like, not bad, Rubes,” Gem said, tilting her head to study the drawing. “But, for real, you could’ve made me look a *little* more godlike. I mean, I don’t look this basic, right?”
 
 Ruby sighed. “How about you draw yourself, then?”
 
-“Why not?” Gem ruffled Ruby’s hair and winked. “Watch and learn, little sis.”  
+Gem rolled her eyes dramatically. “Ugh, fine. Watch and learn, babe.” She ruffled Ruby’s hair with a wink. “Try not to get too jealous.”
 
-She grabbed an empty sheet of paper and a few pencils from the instructor’s supply table. Without so much as sitting down, she placed the paper on a nearby easel and began sketching.  
+She grabbed an empty sheet of paper and a few pencils from the instructor’s supply table. Without so much as sitting down, she placed the paper on a nearby easel and began sketching.
 
-Her hand moved with unexpected precision, quick but deliberate, as if the image in her mind was guiding her every stroke. The other students, packing up their things, started to notice. One by one, they drifted over, their curiosity piqued.  
+Her hand moved with unexpected precision, quick but deliberate, as if the image in her mind was guiding her every stroke. The other students, packing up their things, started to notice. One by one, they drifted over, their curiosity piqued.
 
-Ruby crossed her arms, watching from her seat. “Oh, come on. What are you doing now?”  
+Ruby crossed her arms, watching from her seat. “Oh, for fuck’s sake. What are you doing now?”
 
-“Just showing everyone how it’s done,” Gem replied with a smirk, not looking up.  
+“Showing everyone how it’s done, duh,” Gem replied without looking up, a smirk curling her lips.
 
-The sketch began to take shape—a portrait of herself. Gem captured the sharp lines of her jaw, the arch of her brows, and the soft fullness of her lips. The shading around her eyes gave them a lifelike sparkle, and her expression radiated the confident charisma she exuded in real life.  
+The sketch began to take shape—a portrait of herself. Gem captured the sharp lines of her jaw, the arch of her brows, and the soft fullness of her lips. The shading around her eyes gave them a lifelike sparkle, and her expression radiated the confident charisma she exuded in real life.
 
-She added the contours of her shoulders and torso with a practiced hand, defining the subtle interplay of light and shadow on her muscles. Her abs were drawn with a precision that made Ruby blink in surprise, each ridge and curve perfectly rendered.  
+She added the contours of her shoulders and torso with a practiced hand, defining the subtle interplay of light and shadow on her muscles. Her abs were drawn with a precision that made Ruby blink in surprise, each ridge and curve perfectly rendered.
 
-“You’ve got to be kidding me,” Ruby muttered under her breath, inching closer despite herself.  
+“You’ve *got* to be shitting me,” Ruby muttered under her breath, inching closer despite herself.
 
-Gem stepped back to inspect her work, chewing on the eraser of her pencil. “Huh. Not bad for someone who hasn’t touched a pencil in years.”  
+As Gem was finishing, the students' expressions shifted from curiosity to disbelief. These were people who had been drawing for years, honing their craft with dedication and practice. And here was Gem, who hadn’t picked up a pencil in ages, casually outdoing them all with an ease that felt almost insulting.  
 
-One of the students, wide-eyed, leaned in to get a closer look. “That’s... that’s incredible.”  
+One of the students tried to hide the envy flickering in their eyes, but their tightened jaw and forced smile betrayed them. Another shuffled awkwardly, gripping their own sketchbook as though it might shield them from Gem's brilliance.  
 
-Another nodded, whispering, “It looks like it should be in a museum.”  
+When Gem finally stepped back and tilted her head at her work, her lips curled into a sly smile. “Wow. Didn’t think I had it in me,” she said, as if she hadn’t just blown everyone away with a casual masterpiece.  
 
-Gem tossed her hair over her shoulder, a playful grin spreading across her face. “What can I say? Some of us are just born with it.” She shot a glance at Ruby, her eyes glinting with mischief. “No offense, Rubes.”  
+The instructor approached, wide-eyed and speechless, as Gem handed over the portrait with an exaggerated flourish. “You can keep it,” she said, her voice dripping with mock generosity. “Consider it a gift. You know, for the *art world* or whatever.”  
 
-Ruby rolled her eyes, though her cheeks were faintly pink. “You’re ridiculous.”  
+As the instructor stammered a thank you, clutching the portrait as if it were a priceless treasure, Gem’s gaze swept over the group of students. Their unspoken jealousy hung thick in the air, and it only seemed to amuse her further.  
 
-Gem handed her casual masterpiece—a portrait of herself so lifelike it almost seemed to breathe— to the instructor, who stood speechless, holding the paper as though it were a priceless artifact. “You can keep it,” she said. “Call it a gift. Don’t all thank me at once.” 
+Gem chuckled, leaning closer to Ruby and stage-whispering, “You can practically *feel* how mad they are. It’s, like, kinda adorable.” She gave a quick wink before sauntering back to her seat, leaving a wave of stunned silence and simmering envy in her wake.  
 
-She turned and strolled back to the platform, every step a study in grace. The students nearby couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. Even as she reached for her clothes, her beauty seemed almost otherworldly—her skin glowing, her muscles subtly flexing as she moved, her perfect smile lighting up her face.  
+She turned and strolled back to the platform, every step a study in grace. The students nearby couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. When she reached for her clothes, she slipped the robe off her shoulders with an unhurried motion, letting it slide to the platform in a silken heap.  
+
+For a moment, the room seemed to hold its breath. Her beauty was almost otherworldly—her skin glowing, her muscles subtly flexing as she moved, the soft curve of her smile catching the light. It wasn’t just her looks, though; it was the way she carried herself, as if she was untouchable, invincible.  
 
 Ruby, seated at her easel, couldn’t help but feel a familiar mix of admiration and irritation. Gem’s natural brilliance and poise were like a spotlight that never dimmed, and Ruby had spent her life trying to avoid its glare.  
 
-As Gem shrugged into her crop top, pulling it down to frame her toned abs and slipping on her fitted jeans, she glanced over at Ruby with a mischievous grin. "Well, that was fun," she said, tying her hair into a loose ponytail. "I mean, how often do people get the chance to draw *this*?" She gestured to herself with a playful flourish, her eyes sparkling. Ruby rolled her eyes.
+Gem bent to grab her clothes, slipping on a pair of black underwear with casual ease, the motion as graceful as if she were performing on stage. She didn’t bother with a bra—she didn’t need one, and everyone who looked at her knew it. Instead, she pulled her crop top over her head, adjusting it so it framed her toned abs perfectly.  
 
-"Come on, Rubes," Gem said, grabbing her bag and slinging it over her shoulder. "Admit it. You were lucky to have me as your model. Everyone was. Honestly, if I wasn’t such an amazing physicist, I could totally go into modeling. Can you imagine me on a runway?"  
+She slipped into her fitted jeans, their snug lines accentuating her every move, and tied her hair into a loose ponytail with practiced ease. Glancing over at Ruby with a mischievous grin, she slung her bag over her shoulder.  
 
-Ruby snorted. "Yeah, you’d love that."  
+“Well, shit, that was fun,” she said, gesturing to herself with a playful flourish, her eyes sparkling. “I mean, how often do people get the chance to draw *this*?”  
 
-Gem laughed, her voice ringing like a bell as she slipped her sneakers on. "I would. But it’d be almost *too* easy. Like everything else."  
+Ruby rolled her eyes, but the faintest hint of a smile tugged at her lips despite herself.
 
-As they walked out together, Gem turned to Ruby, her grin softening into something almost fond. "But seriously, it was fun. Maybe I’ll come back. Keep giving these poor art students the best lesson they’ll ever have."  
+"Come on, Rubes," Gem continued, grabbing her bag and slinging it over her shoulder. "Admit it—you’re lucky to have me as your model. Everyone is. Honestly, if I wasn’t such an amazing physicist, I could totally go into modeling. Like, can you even imagine me on a runway? It’d be *iconic.*”  
 
-Ruby muttered something under her breath, but her lips quirked into a reluctant smile. Gem, as always, had stolen the show. And, as always, she’d enjoyed every second of it. 
+Ruby snorted. "Yeah, you’d love that.”  
+
+Gem laughed, her voice ringing like a bell as she slipped her sneakers on. “Obviously. But, like, it’d be almost too easy. Just like *everything else.*”  
+
+Ruby opened her mouth to retort, but Gem was already stepping closer. “Hey, Rubes,” she said softly, her grin softening into something that caught Ruby off guard.
+
+“What now?” Ruby muttered, feeling her irritation rise again.
+
+Gem's grin softened into something far more intimate. “Thanks for putting up with me today.”  
+
+Gem leaned in and kissed her. It wasn’t rushed or teasing—it was deliberate, confident, and maddeningly good. Her lips were soft but firm, moving with a skill and assurance that left Ruby stunned. Ruby moaned, and Gem pressed closer, her toned body warm and solid against Ruby’s. Ruby could feel the subtle strength of Gem’s muscles as they aligned, Gem’s hand lightly brushing the back of her neck.  
+
+Ruby’s frustration melted away, replaced by a flush of heat and a dizzying sense of surrender. Her hands instinctively gripped Gem’s waist, her fingers brushing the hem of her crop top where smooth skin met taut muscle.  
+
+When Gem finally pulled back, her smile was smug, her lips still faintly curved from the kiss. “See? I’m good at *everything.*”  
+
+Ruby stared at her, her breath shallow, her cheeks burning. Whatever sarcastic remark she’d been about to throw out had completely vanished from her mind.  
+
+Gem smirked, brushing a lock of hair from Ruby’s face. “Come on, Rubes. Let’s go.”  
+
+Ruby followed her out the door, her lips still tingling, her thoughts scrambled. Gem, as always, had stolen the show—and this time, Ruby wasn’t sure she even minded.
