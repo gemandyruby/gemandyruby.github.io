@@ -17,7 +17,7 @@ Gem shot Ruby a wink as she climbed onto the platform in the center of the room.
 
 “All right, everyone,” the instructor said, clapping their hands. “Let’s get started. Gem, whenever you’re ready.”  
 
-With an almost theatrical flair, Gem untied the robe and let it slide from her shoulders.  
+With an almost theatrical flair and a sashay of her hips, Gem untied the robe and let it slide from her shoulders.  
 
 The room seemed to collectively hold its breath.  
 
