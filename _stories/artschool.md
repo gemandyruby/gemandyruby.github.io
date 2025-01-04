@@ -25,7 +25,7 @@ Gem stood before the class completely naked. Her body was a masterpiece. Her six
 
 Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d seen her naked many times, she'd *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
 
-Gem, of course, was having the time of her life. She struck a simple standing pose at first, hands on her hips, her expression playful. “Hope you’re all ready,” she said with a grin, her voice dripping with confidence. “This isn’t your average figure study.”  
+Gem, of course, was having the time of her life. She struck a simple standing pose at first, hands on her hips, her expression playful. “Okay, like, hope y’all are ready,” she said with a grin, her voice dripping with confidence. “This isn’t your basic-ass figure study or whatever.” 
 
 The students chuckled nervously, and Gem basked in their attention.  
 
@@ -41,7 +41,7 @@ For Ruby, every pose felt like a test, a reminder of all the ways she could neve
 
 The worst part was how clearly Gem was enjoying herself. She shifted into another pose, lying on her side with one arm propping up her head.  
 
-“Don’t be shy,” Gem said, flashing the room another dazzling smile. “You can look as much as you need to. I don’t bite. Well, not during class.”  
+“Don’t, like, be shy or whatever,” Gem said, flashing the room another dazzling smile. “You can stare. I’m used to it. It’s fine. I don’t bite. Well, not during class.”
 
 A few students laughed nervously, and Ruby grit her teeth.  
 
@@ -67,7 +67,7 @@ Ruby sighed heavily, her annoyance only half genuine. Gem’s confidence was mad
 
 Ruby sighed, her exasperation barely concealed. “It’s fine. Just go sit down or something.”
 
-Gem ignored her. “Okay, Rubes, here’s your problem: You’re not doing my abs justice. They’re more defined. Like, seriously, they could cut glass.” Gem absentmindedly ran her hand down her own stomach, pausing to point at specific areas. “See here? The upper two rows—you made them too soft. And this part,” she traced her finger across the side of her obliques, “needs more curve. They’re sharper in real life.”
+Gem ignored her. “Oh my god, Rubes. What even is this? Like, these abs? They look so… basic. You can’t just, like, skip details like that.” She casually flexed her stomach, running her hand over her abs. “See? These could, like, legit cut glass. Feel ‘em if you want, babe.” Gem absentmindedly ran her hand down her own stomach, pausing to point at specific areas. “See here? The upper two rows—you made them too soft. And this part,” she traced her finger across the side of her obliques, “needs more curve. They’re sharper in real life.”
 
 Ruby groaned, her pencil pausing mid-stroke. “Gem, do you have to be so... detailed?”
 
@@ -79,7 +79,7 @@ Ruby gasped softly, startled by the sheer firmness beneath her fingers. She’d 
 
 Ruby groaned. “Gem…”
 
-“And the curve of my ribs? A little more pronounced. Oh, and the angle of my shoulders—you made them too narrow. I’m broader than that.” Gem flexed her arms slightly, showcasing the width of her frame. “See? Also, my breasts are bigger and perkier than that. I mean, come on, Rubes, you’ve seen them enough times.” She cupped her large breasts to demonstrate.
+“Anyway,” she said, twirling her hair. “My shoulders are, like, way broader than that. And my boobs? Babe, please. They’re perkier than this sad sketch you’ve got going on.” She cupped her large breasts to demonstrate.
 
 Ruby tossed down her pencil in frustration. “You’re insufferable.”  
 
