@@ -65,7 +65,7 @@ But Gem ignored her, studying the drawing intently. Ruby sighed, shaking her hea
 
 Ruby groaned. “Gem…”
 
-“And the curve of my ribs? A little more pronounced. Oh, and the angle of my shoulders—you made them too narrow. I’m broader than that.” Gem flexed her arms slightly, showcasing the width of her frame. “See? Also, my breasts are bigger than that. I mean, come on, Rubes, you’ve seen them enough times.” She cupped her large breasts to demonstrate.
+“And the curve of my ribs? A little more pronounced. Oh, and the angle of my shoulders—you made them too narrow. I’m broader than that.” Gem flexed her arms slightly, showcasing the width of her frame. “See? Also, my breasts are bigger and perkier than that. I mean, come on, Rubes, you’ve seen them enough times.” She cupped her large breasts to demonstrate.
 
 Ruby tossed down her pencil in frustration. “You’re insufferable.”  
 
