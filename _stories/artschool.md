@@ -69,11 +69,7 @@ Ruby groaned. “Gem…”
 
 Ruby tossed down her pencil in frustration. “You’re insufferable.”  
 
-Gem laughed, standing upright and taking another bite of her candy bar. “You’re cute when you’re mad.” She ruffled Ruby’s hair and leaned in to whisper, “You’re lucky to have me as a muse.” Her eyes sparkled mischievously, and her smile was as radiant as ever.
-
-Ruby glared at her but couldn’t hide the small smile tugging at her lips. “You’re impossible.”
-
-“And yet, here I am,” Gem said with a wink, before sauntering back toward the platform, still munching on her candy bar.
+Gem laughed, standing upright and taking another bite of her candy bar. “You’re cute when you’re mad.” She ruffled Ruby’s hair and leaned in to whisper, “You’re lucky to have me as a muse.” Her eyes sparkled mischievously, and her smile was as radiant as ever. Gem winked before sauntering back toward the platform, still munching on her candy bar.
 
 As the session neared its end, the instructor asked for one final pose. Gem grinned, her eyes sparkling with mischief. “You want a good one to finish off?” she asked, her voice dripping with confidence.
 
