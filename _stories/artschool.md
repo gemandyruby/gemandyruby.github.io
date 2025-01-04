@@ -21,9 +21,9 @@ With an almost theatrical flair and a sashay of her hips, Gem untied the robe an
 
 The room seemed to collectively hold its breath.  
 
-Gem stood before the class completely naked. Her body was a masterpiece. Her six-foot frame was both powerful and graceful, with long, toned legs that seemed to go on forever. Her shoulders were broad yet elegant, her arms defined with sleek muscle. Her torso was the real showstopper—her abs rippled with definition, each line carved with precision, her waist tapering into perfect symmetry. Her tanned skin was smooth and radiant, glowing with health. And her breasts, full, perfectly proportioned, standing proud on her chest, added an effortless femininity to her otherwise athletic build.  
+Gem stood before the class completely naked. Her body was a masterpiece. Her six-foot frame was both powerful and graceful, with long, toned legs that seemed to go on forever. Her shoulders were broad yet elegant, her arms defined with sleek muscle. Her torso was the real showstopper—her abs rippled with definition, each line carved with precision, her waist tapering into perfect symmetry. Her tanned skin was smooth and radiant, glowing with health. Her ass, rounded and firm, completed the picture of perfection, sculpted as though by the hand of a master artist. And her breasts, full, perfectly proportioned, standing proud on her chest, added an effortless femininity to her otherwise athletic build.
 
-Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d seen her naked many times, she'd *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
+Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
 
 Gem, of course, was having the time of her life. She struck a simple standing pose at first, hands on her hips, her expression playful. “Okay, like, hope y’all are ready,” she said with a grin, her voice dripping with confidence. “This isn’t your basic-ass figure study or whatever.” 
 
@@ -49,7 +49,7 @@ When the timer buzzed, signaling the start of the break, Gem stretched dramatica
 
 Her radiant smile, framed by her full lips and flawless skin, practically lit up the room as she casually unwrapped a candy bar. She took a slow, deliberate bite, her perfect teeth catching the attention of anyone not already mesmerized by the lines of her sculpted physique.
 
-The eyes of the students followed her as she moved, her toned physique on full display. Her shoulders, back, and abs gleamed faintly in the soft studio light, every line of definition a testament to her genetics.
+The eyes of the students followed her as she moved, her toned physique on full display. Her shoulders, back, and abs gleamed faintly in the soft studio light, every line of definition a testament to her genetics. Her walk was unhurried, a languid sway that made her hips move in a rhythm as captivating as it was effortless, each step exuding a confidence that turned heads without trying.
 
 She stopped by the nearest student’s easel and leaned in to inspect their work, gesturing with the half-eaten candy bar. “Not bad. But see this part here? My arm’s actually a little thicker—gotta show the deltoids better. Here, look.” She flexed subtly, and the student’s eyes widened as they scrambled to adjust their sketch. “There, that’s more like it. You’re welcome.”
 
