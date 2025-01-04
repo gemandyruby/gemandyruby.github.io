@@ -55,13 +55,27 @@ She stopped by the nearest student’s easel and leaned in to inspect their work
 
 Moving on, Gem paused at another student’s station. “Ooh, love the shading. But you’re missing the curve here,” she said, tracing a line on her own hip. “It’s all about the angles, sweetie.” She struck a slight pose, emphasizing the curve she was talking about, before laughing at the stunned expression on the student’s face.
 
-Finally, she made her way to Ruby, who had been sitting quietly, trying to focus on her drawing. Ruby glanced up and immediately frowned. “Gem, you’re supposed to wear the robe during breaks. It’s the rules.”
+Finally, Gem made her way to Ruby, who had been sitting quietly, trying to focus on her drawing. When Ruby glanced up, her breath caught for a moment, just as it always did. No matter how many years she’d spent around Gem, her sister’s sheer presence never failed to stun her. The way Gem’s skin seemed to glow, her golden hair catching the light just so, and that infuriatingly perfect smile—it was impossible not to stare.
 
-Gem grinned, taking another bite of her candy bar. “Oh, come on, Rubes. Don’t be such a prude. I don't think anyone minds.” She leaned over Ruby’s shoulder, her hair brushing lightly against her sister’s arm. “Anyway, let’s see how you’re doing.”
+Gem, of course, noticed immediately. “Still can’t get used to how good I look, huh?” she teased, taking a bite of her candy bar.
+
+Ruby rolled her eyes, quickly looking back at her drawing. “Don’t flatter yourself. You’re supposed to wear the robe during breaks. It’s the rules,” Ruby muttered, still trying to steady her hand.
+
+“Oh, come on, Rubes,” Gem said with a grin, her voice dripping with mock exasperation. “Don’t be such a prude. I don’t think anyone minds.” She gestured broadly toward the other students, many of whom were still stealing glances at her. One or two gave quick, awkward smiles when caught, but Gem just laughed softly. “See? I’m practically doing them a favor.”
+
+Ruby sighed heavily, her annoyance only half genuine. Gem’s confidence was maddening, but her charm made it hard to stay truly angry. “Anyway, let’s see how you’re doing.”
 
 Ruby sighed, her exasperation barely concealed. “It’s fine. Just go sit down or something.”
 
-But Gem ignored her, studying the drawing intently. Ruby sighed, shaking her head as Gem leaned over her shoulder. Her sister’s closeness was impossible to ignore—the faint scent of her perfume, the glow of her skin, the way her body seemed to exude effortless confidence. After a moment, she pointed to the midsection. “Okay, Rubes, here’s your problem: You’re not doing my abs justice. They’re more defined. Like, seriously, they could cut glass.” She absentmindedly ran her hand down her own stomach, as if to emphasize her point.
+Gem ignored her. “Okay, Rubes, here’s your problem: You’re not doing my abs justice. They’re more defined. Like, seriously, they could cut glass.” Gem absentmindedly ran her hand down her own stomach, pausing to point at specific areas. “See here? The upper two rows—you made them too soft. And this part,” she traced her finger across the side of her obliques, “needs more curve. They’re sharper in real life.”
+
+Ruby groaned, her pencil pausing mid-stroke. “Gem, do you have to be so... detailed?”
+
+Gem smirked. “It’s not my fault you’re struggling to capture perfection.” Then, without warning, she grabbed Ruby’s hand and pressed it against her stomach. “Here, feel for yourself. See how solid they are?”
+
+Ruby gasped softly, startled by the sheer firmness beneath her fingers. She’d expected them to be defined, of course—Gem’s abs were legendary—but touching them was a whole different experience. They felt like carved marble, unyielding and impossibly precise. Ruby yanked her hand back, her cheeks flushing.
+
+“See what I mean?” Gem said, leaning back with a teasing grin. “You’ll never get it right if you don’t pay attention to the details, Rubes.”
 
 Ruby groaned. “Gem…”
 
