@@ -149,9 +149,7 @@ She turned and strolled back to the platform, every step a study in grace. The s
 
 Ruby, seated at her easel, couldn’t help but feel a familiar mix of admiration and irritation. Gem’s natural brilliance and poise were like a spotlight that never dimmed, and Ruby had spent her life trying to avoid its glare.  
 
-As Gem shrugged into her crop top, pulling it down to frame her toned abs and slipping on her fitted jeans, she glanced over at Ruby with a mischievous grin. "Well, that was fun," she said, tying her hair into a loose ponytail. "I mean, how often do people get the chance to draw *this*?" She gestured to herself with a playful flourish, her eyes sparkling.  
-
-Ruby rolled her eyes. "You’re impossible."  
+As Gem shrugged into her crop top, pulling it down to frame her toned abs and slipping on her fitted jeans, she glanced over at Ruby with a mischievous grin. "Well, that was fun," she said, tying her hair into a loose ponytail. "I mean, how often do people get the chance to draw *this*?" She gestured to herself with a playful flourish, her eyes sparkling. Ruby rolled her eyes.
 
 "Come on, Rubes," Gem said, grabbing her bag and slinging it over her shoulder. "Admit it. You were lucky to have me as your model. Everyone was. Honestly, if I wasn’t such an amazing physicist, I could totally go into modeling. Can you imagine me on a runway?"  
 
