@@ -23,7 +23,7 @@ The room seemed to collectively hold its breath.
 
 Gem stood before the class completely naked, and her body was a masterpiece. Her six-foot frame was both powerful and graceful, with long, toned legs that seemed to go on forever. Her shoulders were broad yet elegant, her arms defined with sleek muscle. Her torso was the real showstopper—her abs rippled with definition, each line carved with precision, her waist tapering into perfect symmetry. Her skin was smooth and radiant, glowing with health. And her breasts, full and perfectly proportioned, firm and proud on her chest, added an effortless femininity to her otherwise athletic build.  
 
-Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
+Ruby’s face burned as she forced herself to look. She’d grown up around this. She’d seen her naked many times, she'd *known* this was what her sister looked like. But to sit here, pencil in hand, and have to analyze every perfect curve, every shadow and highlight… it was torture.  
 
 Gem, of course, was having the time of her life. She struck a simple standing pose at first, hands on her hips, her expression playful. “Hope you’re all ready,” she said with a grin, her voice dripping with confidence. “This isn’t your average figure study.”  
 
