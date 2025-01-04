@@ -143,7 +143,7 @@ Gem tossed her hair over her shoulder, a playful grin spreading across her face.
 
 Ruby rolled her eyes, though her cheeks were faintly pink. “You’re ridiculous.”  
 
-Gem handed the sketch to the instructor, who stood speechless, holding the paper as though it were a priceless artifact. “You can keep it,” she said casually. “Call it a gift. Don’t all thank me at once.”  
+Gem handed her casual masterpiece—a portrait of herself so lifelike it almost seemed to breathe— to the instructor, who stood speechless, holding the paper as though it were a priceless artifact. “You can keep it,” she said. “Call it a gift. Don’t all thank me at once.” 
 
 She turned and strolled back to the platform, every step a study in grace. The students nearby couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. Even as she reached for her clothes, her beauty seemed almost otherworldly—her skin glowing, her muscles subtly flexing as she moved, her perfect smile lighting up her face.  
 
