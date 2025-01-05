@@ -55,11 +55,69 @@ Gem laughed, the sound bright and unbothered. “Superhero, obviously. I mean, I
 
 Ruby groaned but couldn’t hide her amusement. It was hard to stay annoyed with Gem for long. Her confidence was as infectious as it was overwhelming, and despite the chaos she caused, she had a way of making everything feel more alive.
 
+The waiter approached cautiously, a tray balanced in his slightly trembling hands. His eyes darted anywhere but directly at Gem—first to the tiled floor, then to the shimmering pool, and finally to the sky, as if silently asking for divine intervention. But avoiding her entirely was impossible; she radiated an almost magnetic presence, lounging back in her chair with effortless confidence, her golden hair catching the sunlight like a halo.
 
+“Here are your drinks, ladies,” he said, his voice a little too high-pitched as he set the tray down on the small table between them. He placed Ruby’s water in front of her with the precision of a surgeon, careful not to spill a drop. Then he turned to Gem, whose piercing blue eyes were fixed on him, her lips curved in an amused smile.
 
+“Thanks, cutie,” Gem said, leaning forward slightly to take her cocktail. The motion made her shoulders flex and her abs tighten, drawing a nearly audible gulp from the poor waiter. He fumbled with the last glass, his hand shaking as he placed her mojito on the table.
 
+“You okay there?” Gem asked, her tone teasing but not unkind. She rested her chin on her hand, her biceps subtly flexing as she did. “You look a little... distracted.”
 
+“I—uh, no, ma’am, I mean, yes, I’m fine,” the waiter stammered, his face turning a deep shade of red. “Let me know if you need anything else.”
 
+Gem tilted her head, her smile widening. “Anything else? Hmm… I’ll think about it.”
+
+The waiter practically sprinted away, muttering something about checking on other guests. Gem watched him go, then turned to Ruby with a laugh.
+
+The late afternoon sun cast a warm glow over the poolside, the shimmering water reflecting flickers of light onto Gem and Ruby as they lounged in their chairs. Ruby sipped her ice-cold water, trying to lose herself in her book, but Gem, reclining next to her with a cocktail in hand, was determined to chat.
+
+“So,” Gem began, stirring her mojito with the little umbrella that came with it, “you’ll never guess what happened at the lab last week.”
+
+Ruby didn’t look up from her book. “Let me guess: you solved some groundbreaking equation that no one else could figure out?”
+
+Gem gasped, her blue eyes wide with mock surprise. “Oh my God, how did you know? Are you psychic now? Should I be worried?”
+
+Ruby closed her book with a sigh. “Lucky guess.”
+
+“Okay, but seriously,” Gem said, leaning forward, her abs flexing as she moved, causing yet another nearby guest to walk into a lounge chair while staring at her. “It was this crazy problem about the accretion disks of black holes. Everyone thought the data was wrong, but I just tweaked the equation a little—like, nothing major—and boom! Turns out, we’ve been modeling the magnetic fields wrong for decades.”
+
+Ruby stared at her, unamused. “Wow. How thrilling. You’re single-handedly fixing astrophysics. Again.”
+
+“I know, right?” Gem said, oblivious to the sarcasm. “The department head called me a genius. Like, duh.”
+
+Ruby groaned and picked up her book again, but Gem wasn’t done. “Oh! And then I had to explain it all in French because we had this visiting professor from Paris who didn’t speak great English. He was so impressed he invited me to give a talk at the Sorbonne.”
+
+Ruby lowered her book again. “Do you ever stop?”
+
+“Stop what?” Gem asked innocently, sipping her drink.
+
+“Being *you*,” Ruby said, gesturing vaguely at her sister. “The walking, talking embodiment of overachievement.”
+
+Gem tilted her head, as if considering the question. “Hmm, no, I don’t think so. It’s just so much fun. Oh, and speaking of fun, guess what I did yesterday?”
+
+Ruby sighed. “Let me guess: something ridiculously impressive that makes the rest of us mortals feel inadequate?”
+
+Gem laughed. “You’re so funny, Rubes. No, I climbed this rock wall at the gym. It’s, like, supposed to be the hardest one there. No one’s ever done it without ropes, but I thought, why not? And, like, it wasn’t even hard. The guy working there said I was like a real-life Spider-Woman.”
+
+Ruby massaged her temples. “Of course he did.”
+
+“And then,” Gem continued, undeterred, “after I finished, I played a little piano at home to relax. I’m working on this Rachmaninoff piece—soooo tricky, but my fingers are getting faster. Oh! And I think I’m finally nailing that flamenco guitar technique I’ve been practicing. My wrist is killing it.”
+
+Ruby put her book down entirely, staring at her sister with a mix of disbelief and exasperation. “Gem, do you ever stop and think about how ridiculous you sound?”
+
+Gem blinked, genuinely confused. “What do you mean?”
+
+“I mean,” Ruby said, leaning forward, “you’ve spent the last ten minutes casually listing things that most people couldn’t even dream of doing in a lifetime. Do you have *any* idea how insufferable that is?”
+
+Gem shrugged, a playful smirk tugging at her lips. “I mean, I’m just sharing, Rubes. It’s not my fault I’m awesome.”
+
+Ruby leaned back in her chair, shaking her head. “You’re impossible.”
+
+“Impossible and fabulous,” Gem said, raising her glass in a mock toast. “Cheers to me.”
+
+Ruby couldn’t help but laugh despite herself. “You’re lucky you’re funny.”
+
+“And beautiful. Don’t forget beautiful,” Gem added, reclining back and adjusting her bikini strap. Another man tripped over a lounge chair nearby, and Gem glanced over with a wink. “See? Even gravity’s jealous of me.”
 
 As the sun began to dip lower in the sky, casting a warm, golden glow over the pool, Gem decided it was time for a swim. She stood up from her lounge chair, stretching her arms above her head in a way that drew audible gasps from more than one onlooker. Her tiny metallic-blue bikini sparkled like it had been designed for this exact moment, clinging to her flawless, muscular frame. Her shoulders, broad and powerful, rolled fluidly as she stretched, her biceps flexing with a casual ease that made it look like she wasn’t even trying.
 
