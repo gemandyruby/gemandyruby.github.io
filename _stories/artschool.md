@@ -143,7 +143,7 @@ Ruby crossed her arms, watching from her seat. “Oh, for fuck’s sake. What ar
 
 The sketch began to take shape—a portrait of herself. Gem captured the sharp lines of her jaw, the arch of her brows, and the soft fullness of her lips. The shading around her eyes gave them a lifelike sparkle, and her expression radiated the confident charisma she exuded in real life.
 
-She added the contours of her shoulders and torso with a practiced hand, defining the subtle interplay of light and shadow on her muscles. Her abs were drawn with a precision that made Ruby blink in surprise, each ridge and curve perfectly rendered.
+She added the contours of her shoulders and torso with a practiced hand, defining the subtle interplay of light and shadow on her muscles. She casually sketched the soft curves of her breasts, treating it as just another part of the whole. Her abs were drawn with a precision that made Ruby blink in surprise, each ridge and curve perfectly rendered.
 
 “You’ve *got* to be shitting me,” Ruby muttered under her breath, inching closer despite herself.
 
