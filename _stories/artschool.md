@@ -13,7 +13,7 @@ Ruby’s heart sank. Of course. Of *course*. Her sister was the model.
 
 Gem strode into the room like she owned it, which, in a way, she always did. She wore a robe tied loosely at the waist, her impossibly tall, muscular frame commanding every pair of eyes in the room. She greeted the instructor with her trademark dazzling smile, her golden hair catching the light like a halo.  
 
-Gem’s grin widened as she spotted Ruby. “Hey, Rubes! Didn’t know you were taking this class. Small world, huh?” She dropped her bag near the platform at the front of the room and climbed onto the platform in the center. Ruby groaned inwardly. She’d spent years trying to avoid the gravitational pull of her sister’s perfection, and now she was supposed to *study* it?  
+Gem’s grin widened as she spotted Ruby. “Hey, Rubes! Didn’t know you were taking this class. Small world, huh?” She dropped her bag at the front of the room and climbed onto the platform in the center. Ruby groaned inwardly. She’d spent years trying to avoid the gravitational pull of her sister’s perfection, and now she was supposed to *study* it?  
 
 The instructor clapped his hands. “Gem, whenever you’re ready.”  
 
