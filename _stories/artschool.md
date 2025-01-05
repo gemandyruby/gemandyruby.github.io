@@ -151,7 +151,7 @@ She added the contours of her shoulders and torso with a practiced hand, definin
 
 “You’ve *got* to be shitting me,” Ruby muttered under her breath, inching closer despite herself.
 
-As Gem was finishing, the students' expressions shifted from curiosity to disbelief. These were people who had been drawing for years, honing their craft with dedication and practice. And here was Gem, who hadn’t picked up a pencil in ages, casually outdoing them all with an ease that felt almost insulting.  
+As Gem was finishing, the students' expressions shifted from curiosity to disbelief. These people who had been drawing for years, honing their craft with dedication and practice watched Gem, who hadn’t picked up a pencil in ages, casually outdo them all with an ease that felt almost insulting.  
 
 One of the students tried to hide the envy flickering in their eyes, but their tightened jaw and forced smile betrayed them. Another shuffled awkwardly, gripping their own sketchbook as though it might shield them from Gem's brilliance.  
 
@@ -161,9 +161,9 @@ The instructor approached, wide-eyed and speechless, as Gem handed over the port
 
 As the instructor stammered a thank you, clutching the portrait as if it were a priceless treasure, Gem’s gaze swept over the group of students. Their unspoken jealousy hung thick in the air, and it only seemed to amuse her further.  
 
-Gem chuckled, leaning closer to Ruby and stage-whispering, “You can practically *feel* how mad they are. It’s, like, kinda adorable.” She gave a quick wink before sauntering back to her seat, leaving a wave of stunned silence and simmering envy in her wake.  
+Gem chuckled, leaning closer to Ruby and stage-whispering, “You can practically *feel* how mad they are. It’s, like, kinda adorable.” She gave a quick wink before sauntering back to the platform, leaving a wave of stunned silence and simmering envy in her wake.  
 
-She turned and strolled back to the platform, every step a study in grace. The students nearby couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. When she reached for her clothes, she slipped the robe off her shoulders with an unhurried motion, letting it slide to the platform in a silken heap.  
+The students couldn’t help but steal glances, captivated by the sway of her hips and the effortless confidence in her stride. When she reached for her clothes, she slipped the robe off her shoulders with an unhurried motion, letting it slide to the platform in a silken heap.  
 
 For a moment, the room seemed to hold its breath. Her beauty was almost otherworldly—her skin glowing, her muscles subtly flexing as she moved, the soft curve of her smile catching the light. It wasn’t just her looks, though; it was the way she carried herself, as if she was untouchable, invincible.  
 
@@ -183,20 +183,28 @@ Ruby snorted. "Yeah, you’d love that.”
 
 Gem laughed, her voice ringing like a bell as she slipped her sneakers on. “Obviously. But, like, it’d be almost too easy. Just like *everything else.*”  
 
-Ruby opened her mouth to retort, but Gem was already stepping closer. “Hey, Rubes,” she said softly, her grin softening into something that caught Ruby off guard.
+Ruby’s heart was pounding so loudly she was sure Gem could hear it. Gem stepped closer, her grin playful but her eyes warm.  
 
-“What now?” Ruby muttered, feeling her irritation rise again.
+“You know,” Gem said lightly, tilting her head, “you’re kinda cute when you’re all flustered like this.”  
 
-Gem's grin softened into something far more intimate. “Thanks for putting up with me today.”  
+Ruby groaned, trying to hold onto her irritation, but it was already slipping away. “Gem, I’m not—”  
 
-Gem leaned in and kissed her. It wasn’t rushed or teasing—it was deliberate, confident, and maddeningly good. Her lips were soft but firm, moving with a skill and assurance that left Ruby stunned. Ruby moaned, and Gem pressed closer, her toned body warm and solid against Ruby’s. Ruby could feel the subtle strength of Gem’s muscles as they aligned, Gem’s hand lightly brushing the back of her neck.  
+Before she could finish, Gem slipped an arm around Ruby’s waist and, with effortless strength, lifted her off the ground. Ruby gasped, her hands flying to Gem’s shoulders.  
 
-Ruby’s frustration melted away, replaced by a flush of heat and a dizzying sense of surrender. Her hands instinctively gripped Gem’s waist, her fingers brushing the hem of her crop top where smooth skin met taut muscle.  
+“Gem! Put me down!” Ruby protested, but her voice lacked conviction.  
 
-When Gem finally pulled back, her smile was smug, her lips still faintly curved from the kiss. “See? I’m good at *everything.*”  
+Gem only laughed, the sound warm and rich as she leaned in. “Why? You’re adorable like this.”  
 
-Ruby stared at her, her breath shallow, her cheeks burning. Whatever sarcastic remark she’d been about to throw out had completely vanished from her mind.  
+Without missing a beat, Gem kissed her. It wasn’t slow or hesitant—just a quick, soft press of her lips to Ruby’s, friendly yet disarming in its confidence. Ruby froze, the heat of Gem’s body pressed firmly against hers making her head spin.  
 
-Gem smirked, brushing a lock of hair from Ruby’s face. “Come on, Rubes. Let’s go.”  
+All at once, Ruby forgot why she’d been angry in the first place. The solid strength of Gem’s arms holding her, the softness of her lips, and the faint scent of her hair left Ruby in a daze. Warmth spread through her, erasing every trace of her earlier frustration.  
 
-Ruby followed her out the door, her lips still tingling, her thoughts scrambled. Gem, as always, had stolen the show—and this time, Ruby wasn’t sure she even minded.
+Before Ruby could even process the kiss, Gem set her down with a teasing grin. Her hands lingered at Ruby’s waist for just a second longer than necessary before she stepped back.  
+
+“There,” Gem said, her voice light and full of mischief. “See? Now you’ve officially been kissed by a goddess. You can thank me later.”  
+
+Ruby’s cheeks burned as she stared at her sister, utterly at a loss for words. She could still feel the faint impression of Gem’s lips on hers, and her heart was pounding in a way that had nothing to do with being lifted off the ground.  
+
+Gem grabbed her bag and slung it over her shoulder. “Come on, Rubes. Let’s go before you combust.”  
+
+Ruby followed her out of the studio, her steps unsteady and her mind a blur. Whatever annoyance she’d felt before was long gone, replaced by the lingering sensation of Gem’s kiss and the maddening realization that Gem always, always knew how to steal the spotlight—and Ruby’s composure—without even trying.  
