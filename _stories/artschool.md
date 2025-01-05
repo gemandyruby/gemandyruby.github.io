@@ -63,9 +63,13 @@ Ruby rolled her eyes, quickly looking back at her drawing. “Don’t flatter yo
 
 “Oh, come on, Rubes,” Gem said with a grin, her voice dripping with mock exasperation. “Don’t be such a prude. I don’t think anyone minds.” She gestured broadly toward the other students, many of whom were still stealing glances at her. One or two gave quick, awkward smiles when caught, but Gem just laughed softly. “See? I’m practically doing them a favor.”
 
-Ruby sighed heavily, her annoyance only half genuine. Gem’s confidence was maddening, but her charm made it hard to stay truly angry. “Anyway, let’s see how you’re doing.”
+Ruby sighed heavily, her annoyance only half genuine. Gem’s confidence was maddening, but her charm made it hard to stay truly angry.  
 
-Ruby sighed, her exasperation barely concealed. “It’s fine. Just go sit down or something.”
+“Anyway,” Gem said, leaning over Ruby’s shoulder to inspect the drawing, “let’s see how you’re doing.”  
+
+As she moved closer, her breasts lightly grazed Ruby’s shoulder, sending a jolt of warmth down Ruby’s spine. Ruby stiffened slightly, her cheeks warming, but she quickly ducked her head, pretending to focus on the sketch in front of her.  
+
+“It’s fine,” Ruby said, her voice a touch too sharp as she tried to mask her reaction. “Just go sit down or something.”  
 
 Gem ignored her. “Oh my god, Rubes. What even is this? Like, these abs? They look so… basic. You can’t just, like, skip details like that.” She casually flexed her stomach, running her hand over her abs. “See? These could, like, legit cut glass. Feel ‘em if you want, babe.” Gem absentmindedly ran her hand down her own stomach, pausing to point at specific areas. “See here? The upper two rows—you made them too soft. And this part,” she traced her finger across the side of her obliques, “needs more curve. They’re sharper in real life.”
 
