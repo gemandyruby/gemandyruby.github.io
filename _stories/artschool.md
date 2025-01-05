@@ -151,7 +151,7 @@ She added the contours of her shoulders and torso with a practiced hand, definin
 
 “You’ve *got* to be shitting me,” Ruby muttered under her breath, inching closer despite herself.
 
-As Gem was finishing, the students' expressions shifted from curiosity to disbelief. These people who had been drawing for years, honing their craft with dedication and practice watched Gem, who hadn’t picked up a pencil in ages, casually outdo them all with an ease that felt almost insulting.  
+As Gem was finishing, the students' expressions shifted from curiosity to disbelief. People who had been drawing for years, honing their craft with dedication and practice, watched as Gem, who hadn’t picked up a pencil in ages, casually outdid them all with an ease that felt almost insulting.  
 
 One of the students tried to hide the envy flickering in their eyes, but their tightened jaw and forced smile betrayed them. Another shuffled awkwardly, gripping their own sketchbook as though it might shield them from Gem's brilliance.  
 
