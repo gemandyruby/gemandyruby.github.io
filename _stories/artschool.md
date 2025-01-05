@@ -5,7 +5,7 @@ layout: story
 
 Ruby adjusted her sketchpad nervously, sitting in the back corner of the art classroom. Life drawing wasn’t her favorite, but she needed the practice. As students settled in, she glanced toward the front, curious about the model for today’s session.  
 
-“Okay, everyone,” the instructor announced. “Let’s get started. Our model will be here shortly.”  
+“Okay, everyone,” the instructor announced. “Our model will be here shortly.”  
 
 The door opened, and in walked Gem.
 
@@ -15,9 +15,9 @@ Gem strode into the room like she owned it, which, in a way, she always did. She
 
 Gem’s grin widened as she spotted Ruby. “Hey, Rubes! Didn’t know you were taking this class. Small world, huh?” She dropped her bag near the platform at the front of the room and climbed onto the platform in the center. Ruby groaned inwardly. She’d spent years trying to avoid the gravitational pull of her sister’s perfection, and now she was supposed to *study* it?  
 
-“All right, everyone,” the instructor said, clapping their hands. “Let’s get started. Gem, whenever you’re ready.”  
+The instructor clapped his hands. “Gem, whenever you’re ready.”  
 
-With an almost theatrical flair and a sashay of her hips, Gem untied the robe and let it slide from her shoulders.  
+“Alright, let’s get this party started,” Gem said. With an almost theatrical flair and a sashay of her hips, Gem untied the robe and let it slide from her shoulders.  
 
 The room seemed to collectively hold its breath.  
 
