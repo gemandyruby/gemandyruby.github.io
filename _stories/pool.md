@@ -45,7 +45,7 @@ Ruby didn’t look up from her book. “Get whatever will keep you quiet.”
 
 Ruby shook her head but smiled despite herself. “Just water, thanks.”
 
-As the waiter hurried off, clearly flustered, Ruby leaned back in her chair and tried to focus on her book. Gem, meanwhile, was fully in her element, lounging like a queen and soaking up the stares. When her drinks arrived, she took a sip of the piña colada and sighed dramatically.
+As the waiter hurried off, clearly flustered, Ruby leaned back in her chair and tried to focus on her book. Gem, meanwhile, was fully in her element, lounging like a queen and soaking up the stares.
 
 “This place is soooo nice,” she said, glancing around. “But, like, do you think they’ve ever seen anyone as hot as me? Be honest.”
 
