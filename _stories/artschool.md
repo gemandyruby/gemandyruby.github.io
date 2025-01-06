@@ -61,7 +61,7 @@ Gem, of course, noticed immediately. “Still can’t get used to how good I loo
 
 Ruby rolled her eyes, quickly looking back at her drawing. “Don’t flatter yourself. You’re supposed to wear the robe during breaks. It’s the rules,” Ruby muttered, still trying to steady her hand.
 
-“Oh, come on, Rubes,” Gem said with a grin, her voice dripping with mock exasperation. “Don’t be such a prude. I don’t think anyone minds.” She gestured broadly toward the other students, many of whom were still stealing glances at her. One or two gave quick, awkward smiles when caught, but Gem just laughed softly. “See? I’m practically doing them a favor.”
+“Oh, come on, Rubes,” Gem said with a grin, her voice dripping with mock exasperation. “Don’t be such a prude. I don’t think anyone minds.” She gestured broadly toward the other students, many of whom were still stealing glances at her. Gem just laughed softly. “See? I’m practically doing them a favor.”
 
 Ruby sighed heavily, her annoyance only half genuine. Gem’s confidence was maddening, but her charm made it hard to stay truly angry.  
 
