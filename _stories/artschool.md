@@ -85,7 +85,7 @@ Ruby groaned, her voice unsteady. “Gem…”
 
 “Anyway,” she said, twirling her hair. “My shoulders are, like, way broader than that. And my boobs? Babe, please. They’re perkier than this sad sketch you’ve got going on.” She cupped her large breasts to demonstrate.
 
-Ruby tossed down her pencil in frustration. “You’re insufferable.”  
+Ruby tossed down her pencil in frustration.
 
 Gem laughed, standing upright and taking another bite of her candy bar. “You’re cute when you’re mad.” She ruffled Ruby’s hair and leaned in to whisper, “You’re lucky to have me as a muse.” Her eyes sparkled mischievously, and her smile was as radiant as ever. Gem winked before sauntering back toward the platform, still munching on her candy bar.
 
@@ -117,11 +117,7 @@ After a few moments, she bent her free arm into a pose, showing off her biceps w
 
 When she finally came down from the handstand, she transitioned seamlessly into a seated pose, her breathing completely even. “Well?” she asked, glancing at Ruby. “That should’ve given you enough material to finish my masterpiece.”
 
-Ruby set her pencil down, her face a mixture of frustration and awe. “You’re impossible.”
-
-Gem smirked, brushing her hair over her shoulder. “And yet, here I am, making your life interesting. You’re welcome.”
-
-The other students burst into applause, and Gem took a mock bow from her seated position. “Thank you, thank you. Don’t all fight to draw me next week.”
+Ruby set her pencil down, her face a mixture of frustration and awe. The other students burst into applause, and Gem took a mock bow from her seated position. “Thank you, thank you. Don’t all fight to draw me next week.”
 
 Ruby groaned, burying her face in her hands. “I don’t know how I’m related to you.”
 
