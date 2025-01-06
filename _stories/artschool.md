@@ -179,25 +179,27 @@ Ruby rolled her eyes, but the faintest hint of a smile tugged at her lips despit
 
 “Come on, Rubes,” Gem continued, grabbing her bag and slinging it over her shoulder. “Admit it—you’re lucky to have me as your model. I mean, not everyone gets this kind of inspiration. You should be thanking me, really.”  
 
-Ruby groaned, focusing on packing her supplies, but Gem wasn’t finished. She leaned casually against Ruby’s desk, her golden hair catching the light. “Honestly, though, it’s kinda cute how hard you’re trying. I mean, I didn’t expect much—art’s never really been your thing, has it? But hey, maybe with enough practice, you’ll catch up.”  
+Ruby clenched her jaw but said nothing, focusing instead on packing up her pencils.  
 
-Ruby stiffened, her grip tightening on her pencil case. “Gem, I’m not in the mood.”  
+“Seriously, though,” Gem went on, strolling casually beside her. “I’ve been thinking—I could probably do this art thing if I wanted to. I mean, it can’t be that hard, right? It’s just practice, right?”  
 
-Gem laughed, the sound light and dismissive. “Relax, Rubes. It’s just constructive criticism. You’re always so sensitive. Maybe that’s why you’ve never really stood out. I mean, not like me, obviously.”  
+Ruby gritted her teeth. “Right.”  
 
-Ruby slammed her sketchpad into her bag. “Gem, seriously. Stop.”  
+“But,” Gem continued, her voice light, “then I remember—I’ve already got a PhD. In physics. At sixteen. And, you know, being a physicist is kind of a big deal. Changing the way people think about the universe? Yeah, that feels pretty important.”  
 
-Gem’s grin widened, sensing the tension but pushing forward. “What? I’m just being honest. It’s not my fault people notice me. I can’t help it if I was born to shine. You, though—you’re more of the ‘quiet, blending-into-the-background’ type. But hey, that’s okay. Not everyone can handle the spotlight.”  
+Ruby slammed her sketchpad into her bag a little harder than necessary.  
 
-Ruby snapped her head up, her face flushing with anger. “I said, stop it.”  
+“Don’t get me wrong,” Gem added, oblivious or indifferent to Ruby’s growing tension, “art’s great. It’s just... I don’t know, it’s hard to compare when you’re literally changing the world with equations. Not that you need to worry about that.”
 
-Gem raised an eyebrow, feigning innocence. “What? I’m just saying what everyone’s thinking. You’ve always been the shy, awkward one, right? The one who’s always... trying but never quite there.”  
+Ruby spun to face her, her cheeks flushed with anger. “What’s that supposed to mean?”  
 
-Ruby’s hands clenched into fists, her voice rising. “You don’t know what you’re talking about! You’re so full of yourself, Gem. Not everything is about you!”  
+Gem blinked, then shrugged with an innocent smile. “Nothing! Just, you know, you’ve got your thing, I’ve got mine. I’m just saying—it’s funny how you’re here busting your ass to learn something I can do better without even trying.”  
 
-Before Ruby could fully vent her frustration, Gem smirked and stepped closer, her voice soft but cutting. “Oh, Rubes. If it’s not about me, why are you so worked up? It’s not my fault you’re still stuck in my shadow.”  
+Ruby’s hands balled into fists at her sides. 
 
-Ruby’s face burned, her anger boiling over. “I am not in your shadow! You just can’t stand not being the center of attention for five seconds!”  
+Gem tilted her head, her smile softening. “Hey, don’t get mad. I’m just being honest. You’re good, Rubes. You are. But come on, we both know I’m—”  
+
+“Stop,” Ruby snapped, her voice shaking. “Just stop.”  
 
 Without warning, Gem slipped an arm around Ruby’s waist, her movements quick and deliberate. “Oh, come on, Rubes,” she said, lifting Ruby off the ground with ease, her voice laced with teasing amusement. Ruby gasped, her hands flying to Gem’s shoulders, but her anger was now mixed with shock.  
 
