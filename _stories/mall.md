@@ -3,278 +3,340 @@ title: A Day at the Mall
 layout: story
 ---
 
-The sleek convertible hummed down the road, the top down and the wind whipping through their hair. Gem was at the wheel, one hand casually draped over the steering wheel, the other perched on the edge of the door as if she were posing for a magazine cover. Her golden hair shimmered in the sunlight, and her aviator sunglasses added an extra layer of cool to her already overwhelming presence.  
+The rumble of the car’s engine hummed smoothly under Gem’s expert touch. She gripped the steering wheel with one hand, her other resting casually on the gear shift as she weaved effortlessly through traffic. The convertible top was down, letting in the crisp air and the faint scent of autumn leaves. Ruby sat stiffly in the passenger seat, clutching her phone like a lifeline, her eyes darting nervously between the road and her sister.  
 
-Ruby sat in the passenger seat, arms crossed, bracing herself for another Gem-centric monologue.  
+“So there I was,” Gem began, her tone as breezy as the wind whipping through her sun-streaked hair. “The collider had malfunctioned—again, obviously, because nobody bothers to double-check the calibrations except me—and this giant tungsten plate was just *hovering*, barely supported by the crane. Everyone’s freaking out, right? I mean, it’s *tungsten*. That thing weighs, like, a ton.”  
 
-“I still can’t believe how easy that paper was to publish,” Gem said, her voice a mix of nonchalance and pride. “I mean, astrophysics journals don’t just take anything, but when your work rewrites theories, they practically beg for it.” She smirked, glancing at Ruby out of the corner of her eye. “Not that I blame them. I’d beg for me too.”  
+Ruby adjusted her seatbelt and murmured, “Uh-huh,” though her voice was barely audible over the wind.  
 
-Ruby groaned. “Do you ever stop?”  
+Gem turned to her with an exaggerated grin. “So, I’m like, ‘Relax, I’ve got this.’ I sprint over, shove the crane out of the way, and hold the plate steady until the crew can reattach the cables. No big deal.” She flexed her free arm casually.  
 
-“Why would I?” Gem laughed, her perfect white teeth flashing. “Oh, and did I tell you about the time I fixed the particle accelerator in Geneva? They were stumped for weeks, and then I walk in, look at the problem, and bam—solved in an hour. They’re probably still talking about me over there.”  
+“Of course not,” Ruby muttered, her voice tinged with sarcasm.  
 
-Ruby rolled her eyes. “I’m sure they are.”  
+Gem didn’t seem to notice. “The best part? Afterward, the team started calling me ‘Gem the Atlas.’ Isn’t that hilarious? I don’t even lift weights or anything—it’s all natural.”  
 
-“And you know,” Gem continued, as if Ruby hadn’t spoken, “I’m thinking of taking up surfing more seriously. Remember last summer when I caught that wave everyone else wiped out on? That was epic. It’s like my balance is just… flawless.”  
+Ruby pressed her lips together, staring resolutely out the window. She didn’t trust herself to respond without saying something snide, and Gem’s stories always had a way of making her feel like the most ordinary person in the world.  
 
-Ruby didn’t reply, but her silence only fueled Gem’s enthusiasm.  
+“So what’s the plan for today?” Gem continued, switching lanes with a fluid motion that would’ve impressed any driving instructor. “I mean, aside from you dragging me to the mall.”  
 
-“Speaking of balance, I can hold a one-arm handstand for over five minutes now,” Gem said, tapping her fingers on the wheel. “I timed myself yesterday. I mean, it’s not like it’s hard, I only stopped because I was getting bored. But still, pretty impressive, right?”  
+“You’re the one who said you’d come,” Ruby reminded her, finally daring to meet her sister’s eyes.  
 
-Ruby shot her a look. “If I say yes, will you stop?”  
+“True,” Gem admitted, laughing. “I figured you needed some moral support or something. Shopping can be so intense, you know?”  
 
-Gem grinned, tilting her sunglasses down just enough to reveal her piercing blue eyes. “Not a chance. Oh! And wait until we get to the mall. I’ve been meaning to try on those ridiculously tight dresses at that new store. You can help me pick the one that makes me look the most like a goddess.”  
+Ruby rolled her eyes. “Right. That’s exactly what I needed—your *moral support*.”  
 
-“You already act like one,” Ruby muttered under her breath, barely audible over the wind.  
+Gem smirked, unfazed by her sister’s tone. “Oh, speaking of intensity, did I tell you about the time I ran a half-marathon backward? Blindfolded?”  
 
-Gem laughed again, the sound rich and melodious, as if Ruby’s remark was the highest compliment she could receive. “I know, right? Lucky you—you get to bask in my glory every day.”  
+Ruby turned her head sharply. “What?”  
 
-As they pulled into the mall parking lot, Gem parked the car with a fluid ease, flipping her sunglasses back into place. She leaned over to Ruby with a playful smirk. “Ready to have the best mall trip of your life?”  
+“Yeah, it was for charity. The whole thing was livestreamed. I had this whole system of echolocation worked out—super easy, actually, once you get the hang of it. I finished third, which was a bit disappointing, but hey, first time trying it blindfolded, so—”  
 
-Ruby sighed. “Let’s just get this over with.”  
+“Wait, wait, wait,” Ruby interrupted, holding up her hand. “Why would anyone even do that?”  
 
-Gem winked. “That’s the spirit.”  
+“Because it’s fun,” Gem said simply, flashing her a grin. “Also, it raised a ton of money for local schools. Win-win.”  
 
----
+Ruby sighed and slumped deeper into her seat. She didn’t know what was more exhausting—Gem’s stories or the fact that they were probably all true.  
 
-The glass doors of the mall slid open, and Gem stepped in first, radiating an effortless confidence that seemed to shift the atmosphere around her. Heads turned as she passed—men, women, even a few kids who barely knew why they were staring. Her golden hair shimmered under the fluorescent lights, and her lean, athletic frame seemed to glide rather than walk. She was wearing a fitted crop top that showed off her chiseled abs and a pair of high-waisted jeans that hugged her long, toned legs perfectly.  
+They pulled into the mall parking lot, Gem executing a perfect parallel park in one smooth motion. Ruby glanced at her sister, half-expecting her to burst into another story about winning a street racing championship on a whim, but Gem just turned off the engine and stretched lazily.  
 
-Ruby followed a step behind, half-rolling her eyes and half-trying to pretend she wasn’t with her sister. “Does this happen everywhere you go?” she muttered.  
+“Well, here we are,” Gem announced, her voice lilting with anticipation. “Let’s go spend some money. Or, in my case, try on a bunch of stuff just to make it look good.”  
 
-Gem grinned, flashing a smile that could have sold toothpaste. “Of course it does. What can I say? Some of us are just unforgettable.”  
+Ruby groaned as she unbuckled her seatbelt. “You’re impossible.”  
 
-They strolled past a group of teenagers loitering by the entrance. One of the boys nudged his friend and pointed at Gem, whispering something that made them both burst out laughing nervously. Gem noticed but didn’t miss a beat. She turned her head just enough to wink at them, sending the group into a flurry of awkward chuckles and blushing.  
+“And you love me for it,” Gem shot back with a wink, already striding toward the mall entrance like she owned the place.  
 
-Ruby groaned. “Do you *have* to encourage them?”  
-
-“Rubes, I can’t help it if I’m a goddess among mortals,” Gem said, shrugging playfully. “Besides, they should feel lucky. Not everyone gets to witness perfection in person.”  
-
-As they walked further into the mall, a woman carrying shopping bags stopped mid-stride and did a double take. “Excuse me,” she said hesitantly, “are you a model? Or an actress? You look so familiar.”  
-
-Gem tilted her head and smiled, resting a hand casually on her hip. “Nope, just naturally stunning. But I get that all the time.”  
-
-The woman laughed awkwardly and walked away, still glancing back over her shoulder.  
-
-Ruby sighed. “This is going to be a long day.”  
-
-“Oh, come on, it’s fun,” Gem said, tossing her hair back as they passed a display window featuring mannequins in glittering evening gowns. She stopped abruptly, her reflection catching her eye. “Ooh, remind me to try something like that on later. I bet I’d look amazing.”  
-
-“You’d probably cause a scene,” Ruby muttered.  
-
-Gem smirked, throwing an arm around her sister’s shoulders. “You say that like it’s a bad thing.”  
-
-As they walked past the food court, Gem’s eyes lit up. “Oh, we’re definitely hitting that pretzel place later. And maybe the frozen yogurt shop. And—oh! I think there’s a new bakery here, too.”  
-
-Ruby raised an eyebrow. “You’re planning to eat *all* of that?”  
-
-“Of course,” Gem said with a laugh. “I burn calories just by existing. It’s a gift, really.”  
-
-Ruby shook her head. “You’re impossible.”  
-
-Gem grinned down at her sister. “And you wouldn’t have it any other way.”  
+Ruby followed reluctantly, bracing herself for the inevitable spotlight her sister would command the moment they walked through the doors.
 
 ---
 
-Gem sauntered into the boutique like she owned the place, her golden hair gleaming under the soft, flattering lights. The upbeat music thumped gently in the background, and racks of carefully curated clothes lined the space.
+The automatic doors slid open, welcoming them into the brightly lit chaos of the mall. The chatter of shoppers, the faint smell of cinnamon pretzels, and the synthetic gleam of store windows created an atmosphere both lively and overwhelming. Ruby tucked her hands into the pockets of her hoodie, hoping to blend in. Unfortunately, blending in wasn’t an option when you were walking beside Gem.  
 
-“Oh my god, Ruby, this place is, like, *so* cute,” Gem said, running her fingers over a rack of sparkly dresses. “I could totally see myself killing it in one of these.”  
+Gem strode confidently through the entrance, her every step commanding attention. She was wearing a cropped white tank top that clung to her like a second skin, leaving her chiseled abs completely exposed. The high neckline contrasted with the revealing cut, and the material shimmered faintly in the fluorescent light. Her tiny denim shorts, frayed at the edges, sat low on her hips, showcasing her long, toned legs. The smooth bronze of her skin seemed to glow as if she were perpetually lit by a summer sun.  
 
-Ruby followed reluctantly, already anticipating the spectacle. “You don’t need to kill anything, Gem. The whole mall already noticed when we walked in.”  
+Her golden-blonde hair was pulled into a loose braid that cascaded over one shoulder, and a pair of oversized sunglasses perched atop her head. A delicate silver anklet sparkled with every step, catching the light like a secret treasure. Gem moved with the kind of unstudied grace that turned heads without effort, her sandals clicking softly against the tiled floor.  
 
-Gem snorted, flipping her hair. “Well, duh. Can you blame them? Anyway, I’m *definitely* trying stuff on.” She picked up a skintight dress, a barely-there red bikini, and a nightgown with a plunging neckline and open front. “This is, like, exactly my vibe.”  
+It didn’t take long for people to notice. A group of teenagers stopped mid-conversation, their eyes wide as they whispered to each other. An older couple glanced over, the woman giving a disapproving shake of her head while the man’s gaze lingered just a moment too long. Even a security guard standing near the entrance seemed momentarily distracted, his radio crackling unanswered at his hip.  
 
-Ruby sighed. “Why do I feel like this is going to be a thing?”  
+Ruby felt the familiar prickle of secondhand embarrassment creeping up her neck. She ducked her head, trying to disappear into her hoodie, but it was no use. Gem’s presence was a spotlight that couldn’t be dimmed, and Ruby was caught in its glare.  
 
-“It’s always a thing when I’m involved,” Gem replied, grinning. “Now sit tight, Rubes. You’re about to get a show.”  
+“Okay, where to first?” Gem asked, her voice carrying effortlessly over the noise of the mall. She turned to Ruby, her hands resting on her hips in a way that made her abs flex just enough to draw more attention.  
 
-A few minutes later, Gem stepped out of the fitting room wearing the red bikini. The top was barely enough to cover her full, rounded breasts, which seemed to defy gravity, and the bottoms sat low on her hips, perfectly framing her sculpted abs and toned thighs. She turned around, giving Ruby—and anyone else paying attention—a view of her firm, perfectly shaped butt.  
+Ruby mumbled something incoherent, her eyes fixed on the floor.  
 
-“What do you think?” Gem asked, striking a pose with her hands on her hips.  
+Gem laughed, the sound light and carefree. “Come on, Rubes, don’t be shy. This is supposed to be fun!” She looped an arm around Ruby’s shoulders and gave her a playful squeeze.  
 
-“I think this mall has security cameras, and they’re probably zooming in right now,” Ruby muttered, trying to ignore the stares from nearby shoppers.  
+A man passing by stumbled slightly, his gaze locked on Gem’s exposed midsection before he quickly averted his eyes. Gem didn’t seem to notice—or maybe she did and just didn’t care.  
 
-Gem laughed, tossing her hair. “Let them. Like, seriously, if you’re gonna stare, at least *enjoy* it.” She turned to admire herself in the mirror. “God, my boobs look amazing in this. Like, holy shit, I’m perfect.”  
+“Maybe we should get pretzels first,” Gem suggested, steering Ruby toward the food court. “Or check out that new boutique upstairs. Oh! They have those massage chairs now, don’t they?”  
 
-“Modest as ever,” Ruby said dryly.  
+Ruby groaned softly, already regretting this trip. “Can we just get through this without causing a scene?”  
 
-“Why would I be modest?” Gem replied, smirking. “If I had to look at me, I’d be obsessed too.”  
+Gem raised an eyebrow, her lips curling into a mischievous smile. “A scene? Me? Never.”  
 
-She disappeared into the fitting room and re-emerged in the black bikini. This one was even skimpier, with gold accents that highlighted her glowing skin. The top pushed her breasts up slightly, making them look even fuller, and the bottoms accentuated her hips and backside in a way that made Ruby groan.  
+As if on cue, a small child tugged on his mother’s sleeve, pointing at Gem with wide eyes. “Mommy, look! She’s like a superhero!”  
 
-“Yep, buying this one,” Gem declared, turning to look over her shoulder. “My ass looks *so* good.”  
+Gem winked at the boy as they passed, her grin widening. “See, Rubes? I’m just spreading a little joy.”  
 
-“You’re impossible,” Ruby muttered, burying her face in her hands.  
-
-“Oh, please,” Gem said with a laugh. “You love me.”  
-
-Next came the nightgown. The silky fabric clung to her body, the front plunging down to her toned stomach, exposing just enough to make Ruby flush. Gem twirled in front of the mirror, the gown flowing around her legs.  
-
-“Okay, this is, like, total goddess energy,” Gem said, adjusting the straps. “I could walk into a fancy party in this and have everyone, like, bowing at my feet.”  
-
-“You’d also get kicked out for indecency,” Ruby said, her voice muffled by her hands.  
-
-Gem grinned. “Worth it.”  
-
-By the time she finished trying everything on, Gem had a pile of clothes she was taking home. “This was so much fun,” she said, tossing her hair as they walked to the register. “I’m, like, totally *the* moment.”  
-
-Ruby sighed. “You’re a walking reality show.”  
-
-“And you’re the lucky co-star,” Gem said, winking. “Let’s hit the food court after this. I need a pretzel. Or five.”  
+Ruby sighed, pulling her hood up further. It was going to be a long day.
 
 ---
 
-The sisters wandered into the food court, the smells of fried food, sweet desserts, and savory delights mingling in the air. Gem, her golden hair cascading down her back, led the way with the confident stride of someone who owned the world—or at least this corner of the mall. She was still glowing from her clothing haul, swinging her shopping bags casually at her sides.  
+Ruby trailed behind Gem as they entered one of the mall’s trendiest clothing stores. The music thumped with a bass-heavy beat, racks were crammed with bright, summery pieces, and the air smelled faintly of new fabric and overpriced perfume. Ruby stuffed her hands in her hoodie pockets, hoping to keep a low profile.  
 
-“Okay, I’m, like, *starving*,” Gem announced, scanning the options. “Where do we even start? Pizza? Burgers? Ooh, maybe some nachos.”  
+Gem, of course, had no such intentions.  
 
-Ruby followed, clutching her much smaller bag and sighing. “Do you ever stop eating?”  
+“Ooh, look at this!” Gem exclaimed, plucking a neon-pink bikini from a rack near the entrance. She held it up to herself, tilting her head as she studied its minimal coverage. The top was little more than two triangles of fabric held together by thin strings, and the bottoms—well, they barely existed.  
 
-Gem grinned and flipped her hair. “Nope. It’s, like, one of my superpowers. Watch and learn, Rubes.”  
+“Seriously, Gem?” Ruby muttered, glancing around to see if anyone was watching.  
 
-At the burger counter, Gem ordered a double bacon cheeseburger, large fries, a side of onion rings, and a milkshake. Ruby raised an eyebrow, but Gem wasn’t done. She moved on to the pizza stall, ordering two large slices loaded with toppings, then finished at a dessert kiosk where she grabbed a massive cinnamon roll.  
+Gem ignored her, already moving toward a rack of equally skimpy outfits. She pulled out a white crochet cover-up that was practically see-through, a slinky black minidress, and a bright yellow two-piece with high-cut bottoms. “These are perfect for my next beach trip,” she said, tossing them over her arm.  
 
-Ruby, meanwhile, settled for a modest grilled chicken sandwich and a bottle of water. As they found a table, she couldn’t help but gawk at the mountain of food Gem had assembled.  
+A sales associate, a young woman with a trendy bob and a name tag that read *Maya,* approached with a professional smile that wavered as she took in Gem’s ensemble. “Let me know if you need a fitting room,” she said.  
 
-“You’re seriously going to eat all that?” Ruby asked, setting down her tray.  
+“Absolutely,” Gem replied, flashing her a dazzling smile. She grabbed a few more items—a sequined halter top, a pair of metallic hot pants, and an impossibly tiny red bikini—before making her way to the fitting rooms.  
 
-Gem plopped into her seat, flipping her hair over one shoulder. “Obviously. Like, where have you been?” She unwrapped her burger and took a massive bite, her smile widening as she chewed.  
+Ruby hesitated by a display of oversized sweaters, wishing she could just disappear into the folds of a particularly shapeless beige one. “I’ll wait out here,” she mumbled.  
 
-Ruby poked at her sandwich, watching as Gem polished off the burger in record time. Then she moved on to the onion rings, popping them into her mouth one by one like they were popcorn.  
+Gem popped her head out of the fitting room a minute later, still fully dressed but holding up the neon-pink bikini. “Rubes, you *have* to see this one. It’s so me.”  
 
-“Does your stomach, like, go to another dimension or something?” Ruby asked.  
+“Do I?” Ruby said, not moving from her spot.  
 
-Gem laughed, licking a bit of salt off her fingers. “Maybe. Or maybe I’m just *that* awesome. You know, Rubes, most people would kill for a metabolism like mine. And, like, have you *seen* me? I’m basically a goddess. I earned this.”  
+“Oh, come on,” Gem said, rolling her eyes. “You’re no fun.”  
 
-Ruby rolled her eyes. “You don’t earn it. You just exist.”  
+When Gem finally emerged in the bikini, heads turned immediately. The bright pink fabric stood out vividly against her bronzed skin, and every line of her toned body was on full display. She struck a pose in front of the mirror, adjusting the straps with a practiced ease.  
 
-“Exactly,” Gem said with a wink, now tackling her pizza.  
+“I think this one’s a keeper,” she said, inspecting herself from every angle.  
 
-By the time Ruby had managed to finish half her sandwich, Gem had devoured everything on her tray. She leaned back, completely unbothered, sipping the last of her milkshake.  
+A teenage boy browsing nearby knocked over a stack of T-shirts, his face a deep shade of red as he tried to right the display. A woman with a stroller hurried past, muttering something under her breath. Even the sales associate seemed momentarily stunned, her professional demeanor faltering.  
 
-Ruby stared. “Where do you even put it all? You ate, like, three people’s worth of food.”  
+Ruby buried her face in her hands. “Gem, can you maybe not do... whatever this is?”  
 
-Gem shrugged, her tone light and casual. “Good genes, babe. That, and I burn, like, a thousand calories just by existing. Oh, and did you *see* me in that black bikini earlier? My body *deserves* this level of fuel.”  
+Gem laughed, spinning on her heel to face Ruby. “What? I’m just trying things on. Isn’t that the point of coming here?”  
 
-Ruby groaned, pushing her tray away. “You’re ridiculous.”  
+Ruby peeked through her fingers. “You’re *causing a scene.*”  
 
-Gem smiled, the corners of her eyes crinkling in that impossibly perfect way. “Ridiculously fabulous, you mean.”  
+Gem shrugged, clearly unbothered. “Let them look.”  
 
-As they stood to leave, Gem spotted a pretzel stand and gasped dramatically. “Oh my god, I forgot about pretzels! Wait here, Rubes. I need one for the road.”  
+She disappeared back into the fitting room, only to emerge a few minutes later in the yellow two-piece. The high-cut design accentuated her legs, and the bandeau top highlighted her toned shoulders. She struck another pose, this time with her hands on her hips.  
 
-“Of course you do,” Ruby muttered, trailing behind as Gem breezed toward her next snack with the energy of someone who had all the time—and appetite—in the world.
+“Gem!” Ruby hissed as a couple of shoppers stopped to gawk.  
 
----
+“What? It’s called confidence, Rubes.” Gem winked, grabbing the crochet cover-up and slipping it over the bikini. The sheer fabric did little to hide anything, and the effect only seemed to draw more attention.  
 
-### **Flexing at the Fitness Store**  
+By the time she’d tried on the sequined top, the hot pants, and the red bikini—which, predictably, left almost nothing to the imagination—a small crowd had gathered near the fitting room area. Gem basked in the attention, flipping her hair and chatting casually with the onlookers about fit and fabric.  
 
-After leaving the food court (Gem with a giant pretzel in hand), the sisters wandered into a fitness store. The place was sleek and modern, with walls lined with gear and racks of activewear. Dumbbells, kettlebells, and barbells were neatly displayed along one side of the store, catching Gem’s eye immediately.  
+When Gem emerged from the fitting room in the red bikini, heads turned instantly. The vibrant red clung to her figure perfectly, accentuating her toned abs and long, sculpted legs. The high-cut bottoms and barely-there top left little to the imagination, showcasing her athletic physique like a work of art. 
 
-“Oh my god, Rubes, look at all this,” Gem said, taking a bite of her pretzel as she strode over to the weights. “This is, like, *so* cute. Maybe I should get some stuff for the house.”  
+She adjusted one of the straps casually, then turned toward the mirror with a critical eye, examining every angle. “Not bad,” she murmured, running a hand over the strings at her hips. “What do you think, Rubes? This one’s definitely got a little *wow* factor, right?”
 
-Ruby followed hesitantly, still processing how Gem could eat so much and stay so ridiculously fit. “You don’t even work out, Gem. Why would you need weights?”  
+Ruby barely had a chance to mumble an answer before the sales associate, Maya, approached with wide eyes and a beaming smile. “Oh my *god,*” Maya breathed, stopping short as if struck by the sight. “That is... absolutely incredible. You look like you just stepped out of a magazine.”
 
-Gem grinned, setting her pretzel down on a nearby bench. “I don’t need them. But it’s, like, fun to play around sometimes.”  
+Gem laughed softly, brushing a strand of hair over her shoulder. “You think? I mean, it does fit pretty well.”
 
-She walked up to the dumbbell rack and picked up a 100-pound weight in each hand as if they were featherlight. “See? Easy.”  
+“*Pretty well?*” Maya repeated, her voice rising. “No, it’s insane. Your body is just... wow, like, your abs—can I say this?—they’re perfect. I’ve never seen anything like it.”
 
-Ruby gawked. “Gem, those are a hundred pounds *each*! Put them down before you hurt yourself.”  
+Gem smirked and gestured casually at her stomach. “Oh, these? Just a lot of planks and a little good luck.”  
 
-“Hurt myself? Please,” Gem said, rolling her eyes. “This is, like, *nothing*. I mean, have you *seen* me?” She flexed her biceps for effect, the definition in her arms startlingly visible. A couple of nearby shoppers stopped and stared, whispering to each other.  
+Maya hesitated for only a second before blurting, “Do you mind? I mean—can I feel them? Just for a second?”
 
-Gem noticed and flashed them her perfect smile. “Oh, hi! Don’t mind me, just, like, messing around.”  
+Ruby froze, her eyes darting between Gem and Maya in disbelief, but Gem just laughed again, clearly used to this kind of attention. “Sure, go ahead,” she said, striking a playful pose. “They’re not just for show.”
 
-She started curling the dumbbells effortlessly, her golden hair bouncing with each movement. “One...two...three…” she counted, smirking at Ruby between reps. “You know, Rubes, this would probably help you with those stick arms of yours.”  
+Maya’s hand hovered for a moment before she pressed her palm gently against Gem’s stomach. Her eyes went wide as her fingers traced over the defined ridges of Gem’s abs. “Oh my god, they’re like... rock hard,” she said, sounding almost reverent. “How do you even...?”
 
-Ruby crossed her arms. “Not everyone’s a genetic freak like you, Gem.”  
+Gem grinned. “Told you, planks and good genes.” She flexed just slightly, and Maya pulled her hand back with an awed laugh.
 
-“True,” Gem said, switching to overhead presses. “I *am* kind of a goddess. Like, if I wasn’t such a genius physicist, I could totally do fitness modeling. Or *any* modeling, really.”  
+“That’s unreal,” Maya said, shaking her head. “This bikini looks *amazing* on you, but honestly, with a body like yours, you could make anything look good.”
 
-As she set the weights down with a light clank, a store employee approached, looking nervous. “Uh, ma’am, those weights are usually...not for casual use.”  
+“Well, I’ll take that as a compliment,” Gem said, turning back to the mirror and giving her reflection one last approving nod. “I guess this one’s a keeper.”
 
-Gem turned to him, her smile dazzling. “Oh, sorry! I just couldn’t help myself. They’re, like, *so* fun.”  
+“It’s more than a keeper,” Maya said enthusiastically. “It’s practically illegal how good you look in that.”
 
-The employee blinked, clearly unsure how to respond. “Well, uh...you seem very strong.”  
+Ruby, meanwhile, was ready to sink into the floor. She tugged her hood tighter around her face and whispered, “Can we *please* leave now?”  
 
-Gem winked. “Yeah, I get that a lot.”  
+Gem finally relented, gathering her selections and heading to the register. As they walked out of the store, shopping bag in hand, she turned to Ruby with a grin. “See? That wasn’t so bad, was it?”  
 
-She grabbed her pretzel and turned back to Ruby. “Anyway, let’s check out the clothes. Maybe they’ve got something cute I can wear for, like, pretending to work out.”  
-
-Ruby groaned. “You’re impossible.”  
-
-“And fabulous,” Gem added, tossing her hair as she led the way to the activewear section.  
+Ruby groaned, trailing behind her sister as they headed for the food court. “It was *exactly* that bad.”  
 
 ---
 
-After Gem had thoroughly shown off at the fitness store, Ruby decided it was time for something more her speed. As they walked past a cozy-looking bookstore, she grabbed Gem’s arm.  
+The food court was a cacophony of smells, sounds, and energy as Gem and Ruby walked in. Families juggled trays, kids ran past tables, and the air was thick with the aroma of fried foods and sugary desserts. Gem, with her tiny crop top and impossibly short shorts, instantly drew attention as they strolled through. Heads turned, whispers followed, and Ruby walked just a step behind, trying not to notice.  
 
-“Let’s go in here,” Ruby said. “I need a break from watching you show off.”  
+Gem stopped in front of a burger joint. “You know what sounds good? A double bacon cheeseburger. With chili fries. Oh, and a milkshake—chocolate, obviously.” She tapped her chin thoughtfully. “Maybe onion rings too.”  
 
-Gem shrugged, taking the last bite of her pretzel. “Sure, Rubes. You can, like, browse the artsy stuff while I check out, I don’t know, books about me.” She smirked, tossing the pretzel wrapper into a trash can without looking—and somehow making the shot perfectly.  
+Ruby winced. “You’re going to eat all that?”  
 
-The warm, inviting scent of paper and coffee greeted them as they entered the store. Ruby immediately made a beeline for the fiction section, while Gem wandered lazily, scanning the shelves with her usual air of confidence.  
+Gem shrugged, flashing her dazzling grin. “Of course. What’s the point of life if you don’t enjoy it?”  
 
-A few minutes later, Ruby was flipping through a graphic novel when she heard an exaggerated gasp from the other side of the store.  
+Ruby, ever health-conscious, headed toward a salad place nearby. “I’ll just grab something light,” she mumbled, trying to ignore the twinge of envy that gnawed at her.  
 
-“Oh my god, Ruby! You have *got* to see this!” Gem’s voice rang out, drawing the attention of several nearby shoppers.  
+They reconvened at a small table, Gem carrying a tray stacked high with greasy, calorie-laden delights. The burger alone looked like it could feed a family of four. Ruby set her modest salad and bottle of water down across from her, watching as Gem unwrapped her burger with almost childlike excitement.  
 
-Ruby sighed, reluctantly setting the book down. “What now, Gem?”  
+As Gem took a huge bite, a look of bliss crossed her face. “Oh my god, this is *so* good,” she said, her voice muffled through a mouthful of food. She swallowed and added, “You know, this reminds me of that time I won that hot dog eating contest.”  
 
-She found Gem standing in the science section, holding up a sleek hardcover book. The title read: *The Mysteries of the Universe, Unlocked* by Dr. Gem Stone.  
+Ruby blinked. “You entered a hot dog eating contest?”  
 
-Ruby blinked. “Wait...that’s *your* book?”  
+Gem nodded, dipping an onion ring into a pool of ranch dressing. “Yeah! It was a total fluke. We were at this beach festival, and they needed a last-minute participant. I wasn’t even planning on joining, but I thought, ‘Why not?’ And guess what? I ate *thirty-seven hot dogs* in ten minutes and won a giant trophy.”  
 
-Gem grinned, flipping her hair. “Duh. Bestseller, babe. Didn’t I mention it?”  
+Ruby stared at her, utterly dumbfounded. “You’re joking.”  
 
-“No, you didn’t!” Ruby exclaimed, staring at the book. “When did you even write this?”  
+“Nope!” Gem leaned back, sipping her milkshake with a smug grin. “And the best part? I went for a swim right after, and no stomach cramps. It’s like my body just knows how to handle stuff like that.”  
 
-Gem shrugged, opening the book to a random page and pretending to skim it. “Oh, you know, a couple of years ago. Between my PhD and, like, being awesome. It’s not a big deal.”  
+Ruby stabbed her salad with her fork, the crisp greens crunching under her grip. She glanced at Gem’s perfect abs, still visible beneath the crop top despite the feast she was devouring. It didn’t make sense. *How does she eat like this and look like that?*  
 
-“Not a big deal?” Ruby echoed, her voice rising. “You wrote a bestselling astrophysics book, and you *never told me*?”  
+Gem didn’t seem to notice Ruby’s brooding, too busy demolishing her chili fries. “Oh, and speaking of swimming,” she continued, licking some cheese off her thumb, “did I ever tell you about the time I rescued that couple whose sailboat capsized?”  
 
-Gem laughed, patting Ruby on the head. “Aww, Rubes, you’re so cute when you’re flustered. But, like, honestly, it’s just science. I could probably write another one while eating nachos and watching Netflix.”  
+“No,” Ruby said flatly, though she could already sense where this was going.  
 
-Ruby groaned, snatching the book from Gem’s hands and flipping through it. The content was dense but presented in an engaging and accessible way. As much as Ruby hated to admit it, it was impressive.  
+Gem leaned forward, clearly enjoying the storytelling. “So, we were out on the water—this was during that kayaking trip last summer—and I saw them waving for help. The boat was flipped, and they were freaking out. So I dove in, swam all the way out there, flipped their boat back over, and helped them back in.” She popped another onion ring into her mouth. “The guy kept saying, ‘Are you even human?’”  
 
-“This is ridiculous,” Ruby muttered.  
+Ruby bit the inside of her cheek to keep from saying anything. Instead, she pushed her salad around her plate, the envy bubbling just beneath the surface. She looked at her sister—Gem, with her glowing skin, radiant smile, and the body of a Greek statue—and couldn’t help but feel the unfairness of it all. *She eats like this, does whatever she wants, and still looks like she walked out of a photoshoot.*  
 
-Gem leaned against the shelf, her golden hair catching the soft light. “Ridiculously amazing, you mean. And look, my author photo is *so* cute, right?” She pointed to the back cover, where a professionally styled headshot of Gem smiled back at them.  
+Gem finished her burger with a satisfied sigh and leaned back in her chair. “You should’ve been there, Rubes. It was so much fun. Maybe next time I’ll teach you how to flip a boat. It’s all about leverage.”  
 
-Ruby squinted at the photo, then at Gem in real life. “It’s not fair. Even your picture is perfect.”  
-
-Gem winked. “I know, right? Now, let’s buy this so you can, like, read up on how your sister is the smartest, most fabulous person ever.”  
-
-Ruby sighed, clutching the book as they headed toward the register. “I’m never going to hear the end of this, am I?”  
-
-“Nope,” Gem said, tossing her hair. “But, hey, at least you get to live in my orbit. That’s, like, a privilege, Rubes.”  
-
-Ruby rolled her eyes but couldn’t help the small smile tugging at her lips as Gem led the way—because as much as Gem drove her crazy, she wouldn’t trade her for anything.  
+Ruby managed a weak smile, still trying to process how someone could be so effortlessly perfect—and so blissfully unaware of how maddening it was.  
 
 ---
 
-The car hummed softly as Gem maneuvered through traffic with effortless ease, one hand on the steering wheel and the other holding a soda she’d grabbed from the food court. Her blonde hair shimmered in the fading sunlight streaming through the windows, and her smile radiated pure satisfaction.  
+The gleaming lights of the fitness store reflected off rows of neatly stacked weights, racks of athletic wear, and walls adorned with posters of professional athletes. Gem and Ruby stepped inside, and it didn’t take long for Gem to gravitate toward the weight section.  
 
-“Oh my god, Ruby, today was, like, *so* much fun,” Gem said, glancing over at her sister, who was staring out the window with a tired but amused expression. “I mean, the mall is *always* a vibe, but today? Totally next level.”  
+“Ah, I love this place,” Gem said, running a hand over a row of dumbbells. Ruby lingered near the yoga mats, trying not to attract attention.  
 
-Ruby rolled her eyes but couldn’t help smiling. “You just liked showing off, as usual.”  
+Gem stopped in front of the heaviest set of dumbbells—sleek black ones marked “100 LB.” With zero hesitation, she bent down, picked one up in each hand, and started pressing them above her head as if they weighed nothing.  
 
-“Uh, duh,” Gem replied, flashing her perfect teeth in a grin. “Did you *see* me in that fitness store? Like, those dumbbells didn’t stand a chance. And then the bookstore? Iconic. People were, like, *dying* to get a glimpse of greatness.”  
+“Check this out,” Gem called over to Ruby, her arms pumping smoothly. “They’re so light I can’t tell if it’s a joke or if I’m just *that* strong.”  
 
-“Yeah, you and your bestselling book that you conveniently forgot to tell me about,” Ruby muttered, crossing her arms.  
+Ruby rolled her eyes, muttering under her breath, “Definitely the second one.”  
 
-Gem laughed, a musical sound that filled the car. “Oh, Rubes, you’re too cute. I wasn’t hiding it; I just didn’t think you’d care. But, like, how awesome was that? Seeing my book in the wild? Totally surreal, right?”  
+A tall, muscular employee approached them, wearing a store-branded tank top that showcased his impressive biceps. He looked at Gem with a mix of admiration and disbelief. “Uh, can I help you with anything?” he asked, his gaze flicking nervously to the dumbbells in her hands.  
 
-Ruby sighed. “I guess it was...impressive. Not that I’ll ever tell you that.”  
+Gem flashed her trademark grin. “Nah, I’m just messing around. Oh, here—could you put this back for me?” Without thinking, she handed him one of the dumbbells.  
 
-Gem winked. “It’s okay, babe. I already know. I mean, I wrote it, after all.” She took a sip of her soda and continued, “And the clothes! Oh my god, those bikinis were, like, *made* for me. I could’ve cleared out that store if I wanted to.”  
+The worker’s face immediately tensed as he struggled to maintain his grip. “Wow, okay,” he grunted, adjusting his stance. The weight dragged his arm down before he managed to place it back on the rack with a loud clunk.  
 
-Ruby smirked. “If I had a dollar for every time someone in the store stopped to stare at you, I could’ve cleared out the store.”  
+Gem didn’t seem to notice his struggle, already distracted by the pull-up bar mounted to a display frame. “Ooh, this looks fun,” she said, walking over. She jumped up and grabbed the bar, effortlessly pulling herself into a series of rapid-fire pull-ups. Her legs stayed straight, toes pointed, and her movements were so fluid it looked like she was performing gymnastics rather than exercising.  
 
-“Can you blame them?” Gem replied with a playful shrug. “It’s not every day you see a six-foot goddess casually strutting her stuff. Honestly, people should start paying me just to, like, exist in public.”  
+By now, a small group of shoppers and employees had stopped to watch.  
 
-Ruby burst out laughing, shaking her head. “You’re insufferable.”  
+“Is this thing stable?” Gem asked mid-rep, glancing at the worker. “Feels like I could pull it right out of the wall.”  
 
-“Aw, but you love me,” Gem said, tossing her hair dramatically. “And admit it, you had fun today too. We make a great team—brains, beauty, and all-around fabulousness.”  
+The worker, still recovering from the dumbbell incident, nodded quickly. “It’s, uh, bolted pretty securely.”  
 
-Ruby looked over at her sister, who was positively glowing with energy and confidence, and despite herself, she smiled. “Yeah, Gem. We do.”  
+“Good to know.” Gem released the bar with a flip, landing gracefully on her feet.  
 
-The car sped on as the city lights began to flicker to life, their laughter echoing into the evening.
+Ruby sighed, wishing she could melt into the floor. “Do you have to make a scene everywhere we go?”  
+
+Gem grabbed a weighted medicine ball and tossed it up and down casually. “It’s not my fault people are impressed. Oh, hey, check this out!” She threw the ball high into the air, caught it with one hand, and spun it on her finger like a basketball before tossing it back onto the rack.  
+
+The muscular worker, now standing near Ruby, leaned over and whispered, “Is she always like this?”  
+
+“Unfortunately, yes,” Ruby replied, crossing her arms.  
+
+Gem walked over to a display of kettlebells and hoisted the heaviest one—a 150-pound monster—above her head with ease. “Do you think this would look good in the home gym, Rubes?” she asked, striking a mock bodybuilder pose.  
+
+Ruby sighed. “Sure, why not?”  
+
+Gem laughed, setting the kettlebell down with a loud thud that made the floor tremble slightly. “Alright, I think I’m done here. Let’s check out the clothes.”  
+
+The worker, still staring at her in awe, managed to stammer, “Uh, have a great day.”  
+
+Gem winked at him. “You too!”  
+
+---
+
+The cool, quiet ambiance of the bookstore was a welcome contrast to the bustling mall. Ruby sighed in relief as they stepped inside, happy for a momentary reprieve from Gem’s overwhelming presence. Rows of neatly organized shelves stretched out before them, and the faint scent of paper and coffee lingered in the air.  
+
+“Finally, a normal place,” Ruby muttered, trailing behind Gem as they wandered deeper into the store.  
+
+Gem, however, seemed just as enthusiastic as ever. She scanned the shelves, her eyes lighting up when they reached the science section. “Ooh, let’s see if they’ve got anything interesting here,” she said, pulling Ruby along by the arm.  
+
+Ruby barely had time to protest before Gem stopped abruptly, her gaze fixed on a stack of books prominently displayed on a table. The cover featured a dramatic rendering of a galaxy and a bold title: *Beyond the Stars: The Hidden Physics of the Universe.* Beneath it, in elegant letters, was the author’s name: Dr. Gemma Stone.  
+
+Ruby blinked, her brow furrowing as she read the name again. “Wait... *you* wrote this?”  
+
+Gem picked up a copy and grinned. “Yep! Wrote it years ago. Didn’t I ever mention that?”  
+
+“No,” Ruby said, her voice tinged with disbelief. “You *definitely* didn’t.”  
+
+Gem flipped through the pages casually. “Huh, must’ve slipped my mind. It was kind of a side project. You know, something to do between research breakthroughs and working out.”  
+
+Ruby stared at her, her expression a mix of frustration and awe. “A *side project*? This is a bestseller!” She pointed to the gold sticker on the cover that proclaimed *Over 2 Million Copies Sold.*  
+
+Gem shrugged, clearly unfazed. “Yeah, it did pretty well. The publisher was thrilled. Oh, and I handled all the translations myself.”  
+
+Ruby’s jaw dropped. “All the translations? How many languages?”  
+
+Gem tilted her head, pretending to count. “Let’s see... French, German, Mandarin, Spanish, Japanese, Russian... I think there are a few others, but those were the big ones.”  
+
+Ruby gawked at her. “You’re fluent in all of those?”  
+
+Gem laughed. “Well, yeah. Doesn’t everyone learn a few extra languages in their free time?”  
+
+Ruby opened her mouth to retort, but no words came out. She glanced at the book again, flipping to a random page. The writing was clear and engaging, with complex concepts explained in a way that even a casual reader could understand.  
+
+“You seriously never thought to tell me about this?” Ruby asked, her tone incredulous.  
+
+Gem leaned against the table, casually flexing her toned arms as she rested the book on her hip. “I figured it wasn’t a big deal. I mean, it’s not like I wrote it for the fame or anything. I just wanted to make physics more accessible, you know?”  
+
+Ruby shook her head, still trying to process the revelation. “Unbelievable.”  
+
+A passing customer noticed Gem holding the book and stopped in her tracks. “Oh my gosh, are you the author?”  
+
+Gem flashed a dazzling smile. “Guilty as charged.”  
+
+The customer’s face lit up. “I *love* this book! It made me understand things I never thought I could. Can I get a picture with you?”  
+
+“Of course!” Gem said, setting the book down and posing effortlessly.  
+
+Ruby stood off to the side, watching the interaction with a mixture of irritation and reluctant pride. No matter where they went, it seemed Gem couldn’t help but steal the spotlight.  
+
+As the customer walked away, giddy with excitement, Gem turned back to Ruby. “Anyway, I should probably grab a copy for you. You could use it to brush up on your science knowledge.”  
+
+Ruby glared at her. “I think I’ve had enough of your surprises for one day.”  
+
+Gem laughed, looping an arm around Ruby’s shoulders as they headed for the checkout. “Oh, come on, Rubes. Life’s more fun with a little mystery, don’t you think?”  
+
+---
+
+The sun was dipping below the horizon as Gem and Ruby headed home, the car bathed in the warm orange glow of twilight. Gem was behind the wheel, effortlessly maneuvering through traffic with the same casual confidence she seemed to bring to everything.  
+
+"That was *so* much fun," Gem said, her voice bright and cheerful. "We should totally do stuff like this more often. Don’t you think, Rubes?"  
+
+Ruby, sitting in the passenger seat with her arms crossed, glanced out the window and muttered, “Sure.”  
+
+Gem didn’t seem to notice Ruby’s lack of enthusiasm—or if she did, she ignored it entirely. “I mean, did you see the way everyone in the mall couldn’t take their eyes off me? That was hilarious! And that guy at the fitness store? Poor dude probably needs to hit the weights more often, huh?”  
+
+Ruby sighed, her gaze still fixed on the passing scenery. “Yeah, hilarious.”  
+
+“And the bookstore!” Gem continued, her excitement undiminished. “I forgot how much people love *Beyond the Stars.* That lady was so sweet, wasn’t she? I should do book signings again. You’d come, right?”  
+
+Ruby glanced at her sister, her expression a mix of irritation and resignation. “Do I have a choice?”  
+
+Gem laughed, the sound light and musical. “Not really. But hey, you could totally use the chance to pick up some tips from the master.”  
+
+Ruby rolled her eyes. “Right, because I *definitely* need advice from someone who’s good at everything without trying.”  
+
+Gem reached over and gave Ruby a playful nudge on the shoulder. “Aw, don’t be like that, Rubes. You’re good at plenty of things. Like... uh…” She paused, thinking for a moment, before grinning. “You’re really good at glaring. Seriously, it’s like an art form.”  
+
+Ruby couldn’t help the small smirk that tugged at her lips. “Gee, thanks.”  
+
+“You’re welcome,” Gem said, clearly pleased with herself.  
+
+They fell into a comfortable silence for a few moments, the hum of the car engine filling the space. Ruby glanced at her sister, taking in her relaxed posture and the easy smile on her face. As much as Gem’s constant brilliance grated on her, there was something infectious about her energy—something that made it hard to stay mad for long.  
+
+“So,” Gem said, breaking the quiet, “what was your favorite part of the day?”  
+
+Ruby hesitated, then shrugged. “I don’t know. The bookstore, I guess.”  
+
+Gem raised an eyebrow. “The bookstore? Not the part where I found that gorgeous red bikini?”  
+
+Ruby groaned. “Let’s just say the bookstore was the least exhausting part.”  
+
+Gem laughed again, her eyes sparkling as she turned onto their street. “Fair enough. But come on, admit it—you had fun, didn’t you?”  
+
+Ruby considered this for a moment before letting out a reluctant sigh. “Yeah, I guess it wasn’t *all* bad.”  
+
+“I knew it!” Gem said triumphantly, pulling into their driveway. “See? I’m not just a genius, Rubes—I’m also a great big sister.”  
+
+Ruby shook her head, a faint smile on her lips. “Whatever you say, Gem.”  
+
+As they climbed out of the car and headed inside, Ruby found herself thinking that, despite the chaos and the constant spotlight on Gem, there was a part of her—small, but real—that couldn’t imagine the day without her sister.  
