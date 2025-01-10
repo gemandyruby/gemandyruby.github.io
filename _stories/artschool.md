@@ -149,9 +149,11 @@ Ruby crossed her arms, watching from her seat. “Oh, for fuck’s sake. What ar
 
 “Showing everyone how it’s done, duh,” Gem replied without looking up, a smirk curling her lips.
 
-The sketch began to take shape—a portrait of herself. Gem captured the sharp lines of her jaw, the arch of her brows, and the soft fullness of her lips. The shading around her eyes gave them a lifelike sparkle, and her expression radiated the confident charisma she exuded in real life.
+The sketch quickly began to take form—a striking portrait of herself, crafted with the kind of precision that could only come from someone intimately familiar with every line and curve of her own body. Gem’s practiced hand glided over the paper, capturing the sharp angles of her jawline, the elegant arch of her brows, and the full, soft shape of her lips. She shaded her eyes with remarkable detail, imbuing them with a lifelike sparkle that mirrored her real-life charisma and magnetism.
 
-She added the contours of her shoulders and torso with a practiced hand, defining the subtle interplay of light and shadow on her muscles. She casually sketched the soft curves of her breasts, treating it as just another part of the whole. Her abs were drawn with a precision that made Ruby blink in surprise, each ridge and curve perfectly rendered.
+Moving seamlessly, she outlined the powerful contours of her shoulders and torso, each stroke emphasizing the interplay of light and shadow across her muscles. Her pencil moved effortlessly over the soft curves of her breasts, treating them as integral components of the whole composition—nothing more or less than part of her body’s artistry. When she reached her midsection, her hand slowed slightly, not out of hesitation but out of reverence. Each ridge of her abs emerged with precision, every line perfectly measured, as if she could feel the texture beneath her own fingertips.
+
+Ruby blinked, stunned as she watched her sister render herself with such uncanny accuracy and ease. It was as if Gem had memorized every detail of her form down to the subtlest shift of shadow and curve of skin—and now, she was simply translating that knowledge onto paper.
 
 “You’ve *got* to be shitting me,” Ruby muttered under her breath, inching closer despite herself.
 
