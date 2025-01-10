@@ -63,7 +63,7 @@ She stopped by the nearest student’s easel and leaned in to inspect their work
 
 Moving on, Gem paused at another student’s station. “Ooh, love the shading. But you’re missing the curve here,” she said, tracing a line on her own hip. “It’s all about the angles, sweetie.” She struck a slight pose, emphasizing the curve she was talking about, before laughing at the stunned expression on the student’s face.
 
-Finally, Gem made her way to Ruby, who had been sitting quietly, trying to focus on her drawing. When Ruby glanced up, her breath caught for a moment, just as it always did. No matter how many years she’d spent around Gem, her sister’s sheer presence never failed to stun her. The way Gem’s skin seemed to glow, her golden hair catching the light just so, and that infuriatingly perfect smile—it was impossible not to stare.
+Finally, Gem made her way to Ruby, who had been sitting quietly, trying to focus on her drawing. When Ruby glanced up, her breath caught, her pencil slipping slightly in her grip. No matter how many years she’d spent around Gem, her sister’s sheer presence never failed to stun her. The sculpted muscles of her arms and legs, the perfect curve of her waist, the effortless grace in how she moved. Even standing still, Gem radiated a vitality and power that made her seem almost unreal. It was infuriating, mesmerizing, and utterly impossible to ignore.
 
 Gem, of course, noticed immediately. “Still can’t get used to how good I look, huh?” she teased, taking a bite of her candy bar.
 
