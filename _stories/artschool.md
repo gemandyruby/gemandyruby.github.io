@@ -3,15 +3,23 @@ title: Art School Antics
 layout: story
 ---
 
-Ruby adjusted her sketchpad nervously, sitting in the back corner of the art classroom. Life drawing wasn’t her favorite, but she needed the practice. As students settled in, she glanced toward the front, curious about the model for today’s session.  
+Ruby adjusted her sketchpad, her fingers fidgeting nervously in the back corner of the art classroom. Life drawing wasn’t her strong suit, but she needed the practice. Around her, students chatted and settled into their spots, arranging charcoal, pencils, and erasers in preparation for the session. 
 
-“Okay, everyone,” the instructor announced. “Our model will be here shortly.”  
+She glanced toward the front, curious about who the model would be today. 
 
-The door opened, and in walked Gem.
+“Alright, everyone,” the instructor called out, clapping his hands for attention. “Our model will be here shortly.” 
 
-Ruby’s heart sank. Of course. Of *course*. Her sister was the model.  
+As if on cue, the door swung open. 
 
-Gem strode into the room like she owned it, which, in a way, she always did. She wore a robe tied loosely at the waist, her impossibly tall, muscular frame commanding every pair of eyes in the room. She greeted the instructor with her trademark dazzling smile, her golden hair catching the light like a halo.  
+Ruby’s stomach dropped. Walking in, with the effortless poise of someone who always turned heads, was her sister, Gem. 
+
+Of course. Ruby groaned internally. Of course it’s her. 
+
+Gem made her entrance like she owned the place—which, knowing Gem, she might as well have. Her robe hung loosely at the waist, hinting at the statuesque figure beneath. Her impossibly tall, toned frame seemed to radiate confidence, every step deliberate and sure. 
+
+“Good morning!” Gem greeted the instructor with her signature megawatt smile, her golden hair catching the soft overhead light as if it had been placed there specifically for her. Her voice carried effortlessly, the kind that made people pause and take notice. 
+
+Around the room, students whispered to each other, eyes wide and curious. Some exchanged impressed glances. Ruby sank lower into her chair, gripping her sketchpad as though it could shield her from what was sure to be an afternoon of discomfort. 
 
 Gem’s grin widened as she spotted Ruby. “Hey, Rubes! Didn’t know you were taking this class. Small world, huh?” She dropped her bag at the front of the room and climbed onto the platform in the center. Ruby groaned inwardly. She’d spent years trying to avoid the gravitational pull of her sister’s perfection, and now she was supposed to *study* it?  
 
